@@ -1,8 +1,15 @@
- සියලු සංස්කාරයෝ නැසෙන සුලුය. නොපමාව කුසල් වඩන්න 
- (focus on this kusal,kusalathaawaya or in english we call it talent, in the sentence)
+ 
+### සියලු සංස්කාරයෝ නැසෙන සුලුය. නොපමාව කුසල් වඩන්න (focus on this kusal,kusalathaawaya or in english we call it talent, in the sentence)
 
+#### <b> why search dhamma </b> 
 
+TBA
 
+#### <b> what is this collection all about </b>
+
+TBA
+
+#### <b> how to search dhamma</b> 
 first 10 videos - you can start listening to any references you prefer, 
 try to find out things you dont understand ( what i did was i search youtube videos for those words to find meaning)
 10-20, videos are will talk about the depth of the journey, and basic knowledge you require to understand 
@@ -20,102 +27,89 @@ one view point (any), its always about letting go of all the viewpoints. so stop
 focus and listen to what these thero's are trying to explain.
 
 
-20. ධර්ම දානය ගැඹුරින් ( understanding dharma danaya) (2021-05-17 at 02:05 GMT-7)
-=================================================
-
-දුක නිවෙන්නේ ලොවේ යථා ස්වභාවය අවබෝධ කරගැනීමෙනි | Ven Bandarawela Wangeesa Thero
-https://www.youtube.com/watch?v=pFLIOmDLo2I
-
-Dharma danaya | ඉවසීම කියන්නේ මහා පුදුමාකාර දෙයක්  | galigamuwe gnanadeepa thero
-https://www.youtube.com/watch?v=fmxpN1L3j98
-
-දර්ම දානයහි වටිනාකම ගැන ආරන්‍යවාසී භික්ෂූවක් කල පැහැදිලි කිරීම-Rajagiriye ariyagnana thero
-https://www.youtube.com/watch?v=xvi3tVo-fvU
+` 20. ධර්ම දානය ගැඹුරින් ( understanding dharma danaya) (2021-05-17 at 02:05 GMT-7)`
 
 
-21. නාම රූප ගැඹුරින් (2021-05-31 at 02:11 GMT-7)
-=================================================
+- [දුක නිවෙන්නේ ලොවේ යථා ස්වභාවය අවබෝධ කරගැනීමෙනි | Ven Bandarawela Wangeesa Thero ](https://www.youtube.com/watch?v=pFLIOmDLo2I)
 
-Nāma-Rūpa: The middle road between Materialism and Idealism
-https://www.youtube.com/watch?v=2W8MPBS_URQ
+- [Dharma danaya | ඉවසීම කියන්නේ මහා පුදුමාකාර දෙයක්  | galigamuwe gnanadeepa thero ](https://www.youtube.com/watch?v=fmxpN1L3j98)
 
-නාම රූප | Ven. Mankadawala Sudassana Thero | Deegavapiya
-https://www.youtube.com/watch?v=CvB2IhXAfRI
+- [දර්ම දානයහි වටිනාකම ගැන ආරන්‍යවාසී භික්ෂූවක් කල පැහැදිලි කිරීම-Rajagiriyeariyagnana thero](https://www.youtube.com/watch?v=xvi3tVo-fvU)
 
-නාම රූප යනු මොනවාද? | Ven. Mankadawala Sudassana Thero | අතිපූජ්‍ය මාන්කඩවල සුදස්සන හිමි
-https://www.youtube.com/watch?v=C1_3DYX5aCs
 
-නාම රූප යනු ශුද්ධාෂ්ටක රූප කලාපයක් ද ? ( අතිපූජ්‍ය කොත්මලේ කුමාරකස්සප ස්වාමින්වහන්සේ )
-https://www.youtube.com/watch?v=8taoQH7vM_M
+`21. නාම රූප ගැඹුරින් (2021-05-31 at 02:11 GMT-7)`
 
-No 246 - (2) අවිද්‍යා, තණ්හා, කර්ම, ආහාර යන හේතු නිසා රූප හටගැනීම නුවණින් දැකීම පිළිබඳව සහ...
-https://www.youtube.com/watch?v=Gt-s2gzvAPg
+
+- [Nāma-Rūpa: The middle road between Materialism and Idealism](
+https://www.youtube.com/watch?v=2W8MPBS_URQ)
+
+- [නාම රූප | Ven. Mankadawala Sudassana Thero | Deegavapiya](
+https://www.youtube.com/watch?v=CvB2IhXAfRI)
+
+- [නාම රූප යනු මොනවාද? | Ven. Mankadawala Sudassana Thero | අතිපූජ්‍ය මාන්කඩවල සුදස්සන හිමි](
+https://www.youtube.com/watch?v=C1_3DYX5aCs)
+
+- [නාම රූප යනු ශුද්ධාෂ්ටක රූප කලාපයක් ද ?  අතිපූජ්‍ය කොත්මලේ කුමාරකස්සප ස්වාමින්වහන්සේ ](
+https://www.youtube.com/watch?v=8taoQH7vM_M)
+
+- [No 246 - (2) අවිද්‍යා, තණ්හා, කර්ම, ආහාර යන හේතු නිසා රූප හටගැනීම නුවණින් දැකීම පිළිබඳව සහ...](
+https://www.youtube.com/watch?v=Gt-s2gzvAPg)
 
 
 
 
-22. wipaka mattama saha wedanawa Part 1 (2021-06-09 at 02_22 GMT-7)
-=================================================
+`22. wipaka mattama saha wedanawa Part 1 (2021-06-09 at 02_22 GMT-7)`
 
-මේ ආත්ම භවයේදීම නිවන් දකිමු. - අතිපූජ්‍ය කොත්මලේ කුමාරකස්සප ස්වාමින්වහන්සේ.
-https://www.youtube.com/watch?v=Yxoh87kzRrw
+- [මේ ආත්ම භවයේදීම නිවන් දකිමු. - අතිපූජ්‍ය කොත්මලේ කුමාරකස්සප ස්වාමින්වහන්සේ.](
+https://www.youtube.com/watch?v=Yxoh87kzRrw)
 
-"මමත්වයේ" මායාව ,ven gothatuwe rewatha thero ,ගොතටුවේ රේවත හිමිගේ දේශනාවක්,මුල් දේශනාව - akampitha
-https://www.youtube.com/watch?v=tu6uk5gi4Uw
-
+- ["මමත්වයේ" මායාව ,ven gothatuwe rewatha thero ,ගොතටුවේ රේවත හිමිගේ දේශනාවක්,මුල් දේශනාව - akampitha ](
+https://www.youtube.com/watch?v=tu6uk5gi4Uw)
 
 
-23. විපාක මට්ටම P2 (ධාතු සොබාවයන්) (2021-06-14 at 02:07 GMT-7)
-=================================================
+`23.  විපාක මට්ටම P2 (ධාතු සොබාවයන්) (2021-06-14 at 02:07 GMT-7)`
 
-කර්මය සහ කර්ම විශය සම්පූර්ණයෙන් දැනගන්න මේ බණ අහන්න - Galigamuwe Gnanadeepa Thero
-https://www.youtube.com/watch?v=Gyb6OLI3gtk
 
-පටිච්චසමුප්පාදය ~ අටවන කොටස 23.06.2019 නාමරූප පච්වචයා සලායතනං
-https://www.youtube.com/watch?v=Sp78n2QE8r0
+- [කර්මය සහ කර්ම විශය සම්පූර්ණයෙන් දැනගන්න මේ බණ අහන්න - Galigamuwe Gnanadeepa Thero](
+https://www.youtube.com/watch?v=Gyb6OLI3gtk)
 
-very important session below:
+- [පටිච්චසමුප්පාදය ~ අටවන කොටස 23.06.2019 නාමරූප පච්වචයා සලායතනං](
+https://www.youtube.com/watch?v=Sp78n2QE8r0)
 
-Sinhala Dhamma Talk with a Real Monk - 555.5 Minutes
-https://www.youtube.com/watch?v=4rupW9dlCnw
+*very important session below:*
+
+- [Sinhala Dhamma Talk with a Real Monk - 555.5 Minutes](
+https://www.youtube.com/watch?v=4rupW9dlCnw)
 
 
 
-24. ක්ලේශ හදුනා ගැනීම (2021-06-21 at 02:22 GMT-7)
-=================================================
-මා නොවන මගේ 32 | ma nowana mage 32 | Budu bana | Gothatuwe Rewatha Himi
-https://www.youtube.com/watch?v=miKB0Xn8k7k
+`24. ක්ලේශ හදුනා ගැනීම (2021-06-21 at 02:22 GMT-7)`
 
-Gothatuwe Rewatha Himi ඔබගේ පෙර ලොව හා පසු ලොව ගැන විග්‍රහය ගොතටුවේ රේවත හිමි Niwan Maga Bana බණ
-https://www.youtube.com/watch?v=OTtTdvUkpvM
+- [මා නොවන මගේ 32 | ma nowana mage 32 | Budu bana | Gothatuwe Rewatha Himi](
+https://www.youtube.com/watch?v=miKB0Xn8k7k)
+
+- [Gothatuwe Rewatha Himi ඔබගේ පෙර ලොව හා 
+  පසු ලොව ගැන විග්‍රහය ගොතටුවේ රේවත හිමි Niwan Maga Bana බණ](
+https://www.youtube.com/watch?v=OTtTdvUkpvM)
 
 
-25. කාලයේ අනිත්‍ය ස්භාවය (2021-06-28 at 02:24 GMT-7)
-=================================================
+`25.  කාලයේ අනිත්‍ය ස්භාවය (2021-06-28 at 02:24 GMT-7)`
 
-කාලය, අවකාශය සහ විඥාණය 1 - Space, Time & Consciousness
-(https://www.youtube.com/watch?v=mpC-jWBNalU)
+- [කාලය, අවකාශය සහ විඥාණය 1 - Space, Time & Consciousness](https://www.youtube.com/watch?v=mpC-jWBNalU)
  
-කාලය, අවකාශය සහ විඥාණය 2 - Space,Time and Consciousness 2
-(https://www.youtube.com/watch?v=jQjuC9saUkg)
+ - [කාලය, අවකාශය සහ විඥාණය 2 - Space,Time and Consciousness 2](https://www.youtube.com/watch?v=jQjuC9saUkg)
+ - [කාලය, අවකාශය සහ විඥාණය 3 - Space & Time 3](https://www.youtube.com/watch?v=2ljgcBqRmrM)
+ - [කාලය,අවකාශය සහ විඥාණය 4 - Space, Time & Consciousness 4](https://www.youtube.com/watch?v=PYD-Ntm_fDE)
 
-කාලය, අවකාශය සහ විඥාණය 3 - Space & Time 3
-(https://www.youtube.com/watch?v=2ljgcBqRmrM)
+- [~චේතනා, කාලය හා සතර අපායෙන් මිදීම ~ගරු විමුත්තා තෙරණි~](https://www.youtube.com/watch?v=S09-AnqhK6A)
 
-කාලය,අවකාශය සහ විඥාණය 4 - Space, Time & Consciousness 4
-(https://www.youtube.com/watch?v=PYD-Ntm_fDE)
+- [කාලය සහ අවකාශය ( අතිපූජ්‍ය කොත්මලේ කුමාරකස්සප ස්වාමින්වහන්සේ )](https://www.youtube.com/watch?v=fhKTYJ3S3aI)
 
-~චේතනා, කාලය හා සතර අපායෙන් මිදීම ~ගරු විමුත්තා තෙරණි~
-(https://www.youtube.com/watch?v=S09-AnqhK6A)
-
-කාලය සහ අවකාශය ( අතිපූජ්‍ය කොත්මලේ කුමාරකස්සප ස්වාමින්වහන්සේ )
-(https://www.youtube.com/watch?v=fhKTYJ3S3aI)
-
-අවකාශය මායාවක් වන ආකාරය How Space becomes a delusion & an unreality Ven Bandarawla Wangeesa Thero
-(https://www.youtube.com/watch?v=aWYBRefzvI8)
+- [අවකාශය මායාවක් වන ආකාරය How Space becomes a delusion & an unreality Ven Bandarawla Wangeesa Thero](https://www.youtube.com/watch?v=aWYBRefzvI8)
+  
 
 
-26. මතකය සහ මරණය සිදු වෙන අයුරු (2021-07-05 at 02:15 GMT-7)
+26.  මතකය සහ මරණය සිදු වෙන අයුරු (2021-07-05 at 02:15 GMT-7)
 =================================================
 
 භව දෙකක් අතර කර්ම නිමිත්ත මාරුවන තැන අතිශය සියුම් Ven Kirulapana Dhammavijaya thero (2019 - 11 - 09)
