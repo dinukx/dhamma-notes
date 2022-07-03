@@ -14,11 +14,12 @@ so do you really know yourself ? if you knew, you would have controlled it by no
 
 wouldnt it be better to find this out first? rather than trying do same old usuall `thinking`. its like having a machine that you dont understand. what will happen when you dont know something , you start trying out things. based on the outcome you will make certain assumptions. then you try to use the machine with those assumptions. but it doesnt give out continuous expectations (happyness).it does not. Perhaps something is wrong. Either we have understood it wrong or this machine cant be controlled to gain continuous happiness. 
 
-then <b> Wouldnt it be important to find out ??? before anything else </b>
+then <b> Wouldnt it be important to find out ??? before anything else in life </b>
 > Your understanding of how does this mind work ? is that accurate ?
+
 > Can you ever really control your mind ?
 
-Thats why I started Search `Dhamma` (also known as `Dharmathaa`). English meaning ` its a behaviour of a forming shape. which becomes a formation (some are felt as real). some of those formations can be identified by your six sensors.`  
+Thats why I started Search `Dhamma` (also known as `Dharmathaa`). English meaning ` its a behaviour of a forming shape, which becomes a formation (some are felt as real). some of those formations can be identified by your six sensors.`  
 
 
 #### <b><u> Problem of seeking dhamma in today's context </u></b> 
