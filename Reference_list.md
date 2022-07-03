@@ -1,15 +1,34 @@
  
-### සියලු සංස්කාරයෝ නැසෙන සුලුය. නොපමාව කුසල් වඩන්න (focus on this kusal,kusalathaawaya or in english we call it talent, in the sentence)
+### සියලු සංස්කාරයෝ නැසෙන සුලුය. නොපමාව කුසල් වඩන්න 
+(Focus on this `kusal`, in other words `kusalathaawaya` (in english we call it `talent`)
+Identifying `what is this talent` is very important. (This is `not` what you think)
 
-#### <b> why search dhamma </b> 
+#### <b><u> Why search dhamma </u></b> 
+
+Simple, in life all of you want to be is `happy`, have a good experiance and avoid sadness at all times.  so in order to chaise that dream (desired state) you undertake hardship but the happyness doesnt stay, it comes and goes, never permenant. after sometime you undertake this hardship
+as a survival cycle. you just endure weight of the hardship, because of the value you given to the dream. 
+
+All of this simply because `the need` we had to be `happy`. if we look at our individual experiance, we know that, we dont even have the control over next `thought`, but we never realized that. We cant be sure what sort of `thought`, the nextone would be. so searching for happyness is something we really cant control. similary experiancing happiness is also the same, doesnt last. changes often. but we want to keep it(happiness) for long, ever lasting. but so far no one has suceeded. if we cant control the next thought, then there is no confidence that i would be able to satisfy my need to `be happy and stay there` dream. if thats the case, we never had control over being happy or sad either, but experianced it happened.
+
+so do you really know yourself ? if you knew, you would have controlled it by now. Perhaps thats not that easy. would you endure hardship on a `need` that you never had control or the `capability` to satisfy ?. so may be our thinking hasnt really help us evolve outside our mental frame. (a.k.a `outside my mindset`. meaning : outside the collection of mind types, that you can experiance based on your current knowledge model). 
+
+wouldnt it be better to find this out first? rather than trying do same old usuall `thinking`. its like having a machine that you dont understand. what will happen when you dont know something , you start trying out things. based on the outcome you will make certain assumptions. then you try to use the machine with those assumptions. but it doesnt give out continuous expectations (happyness).it does not. Perhaps something is wrong. Either we have understood it wrong or this machine cant be controlled to gain continuous happiness. 
+
+then <b> Wouldnt it be important to find out ??? before anything else </b>
+> Your understanding of how does this mind work ? is that accurate ?
+> Can you ever really control your mind ?
+
+Thats why I started Search `Dhamma` (also known as `Dharmathaa`). English meaning ` its a behaviour of a forming shape. which becomes a formation (some are felt as real). some of those formations can be identified by your six sensors.`  
+
+
+#### <b><u> Problem of seeking dhamma in today's context </u></b> 
+TBA
+#### <b><u> What is this collection all about </u></b>
 
 TBA
+#### <b><u> How to navigate, this collection </u> </b> 
 
-#### <b> what is this collection all about </b>
-
-TBA
-
-#### <b> how to search dhamma</b> 
+<draft>
 first 10 videos - you can start listening to any references you prefer, 
 try to find out things you dont understand ( what i did was i search youtube videos for those words to find meaning)
 10-20, videos are will talk about the depth of the journey, and basic knowledge you require to understand 
@@ -26,6 +45,10 @@ you should not compare your viewpoint or his. this is a path of enlightenment, i
 one view point (any), its always about letting go of all the viewpoints. so stop trying to find the right one.
 focus and listen to what these thero's are trying to explain.
 
+#### <b><u> How to navigate, dhamma in todays context </u> </b> 
+TBA
+
+#### <b><u> Order of things </u> </b> 
 
 ` 20. ධර්ම දානය ගැඹුරින් ( understanding dharma danaya) (2021-05-17 at 02:05 GMT-7)`
 
