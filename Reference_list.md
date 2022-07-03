@@ -1,6 +1,6 @@
  
 ### සියලු සංස්කාරයෝ නැසෙන සුලුය. නොපමාව කුසල් වඩන්න 
-(Focus on this `kusal`, in other words `kusalathaawaya` (in english we call it `talent`)
+(Focus on `kusal`, in other words `kusalathaawaya` (in english we call it `talent`)
 Identifying `what is this talent` is very important. (This is `not` what you think)
 
 #### <b><u> Why search dhamma </u></b> 
@@ -941,3 +941,60 @@ https://www.youtube.com/watch?v=eNLCe4yyEJk)
 https://www.youtube.com/watch?v=Wgx0J5ovxus)
 
 
+`69. මන ධම්ම සහ භාවනා අතර ස ... 022-06-18 14-41 GMT-7).mp3`
+
+
+- [යෝනිසෝමනසිකාරයේ මඤ්ඤනාව - arahantha dhamma](
+https://www.youtube.com/watch?v=H5UH7XCFa5k)
+
+- [ළමයා සහ චිත්‍රය - arahantha dhamma](
+https://www.youtube.com/watch?v=ZteXaJMh85k)
+
+- [මම ගොඩනැගෙන ආකාරය - arahantha dhamma](
+https://www.youtube.com/watch?v=7UEbmiMoq5o)
+
+
+`70. මන ධම්ම discussion (2022-06-20 02-08 GMT-7).mp3`
+
+- [නිවන තවත් Brain Wash වීමක්ද? - arahantha dhamma](
+https://www.youtube.com/watch?v=SYYrC9tqYlM)
+
+- [තීරණ සහ නිර්වාණය - arahantha dhamma](
+https://www.youtube.com/watch?v=eAynkh9znTA)
+
+- [මොහොත, සතිපට්ඨානය - Bandarawela Wangeesa Thero](
+https://www.youtube.com/watch?v=9Wmmjqu3Lho)
+
+- [අවබෝධයේ මුලාව - Bandarawela Wangeesa Thero](
+https://www.youtube.com/watch?v=6a9ILORBoAw)
+
+`71. සෙවීම සහ සොයන්නා (2022-06-25 14-41 GMT-7).mp3`
+
+- [සබ්බාසව සුත්‍රය 01 - ආශ්‍රව ප්‍රහාණය පිලිබඳ තථාගතයන් වහන්සේගේ දේශනාව](https://www.youtube.com/watch?v=uSfCSR6yUbQ)
+
+- [සබ්බාසව සුත්‍රය 02 - යෝනිසෝ මනසිකාරය සහ අයෝනිසෝ මනසිකාරය](https://www.youtube.com/watch?v=UD_YpHJOr0w)
+- [සබ්බාසව සුත්‍රය 03 - ආශ්‍රව ප්‍රහාණය කරන ක්‍රම 7](https://www.youtube.com/watch?v=uNDtxalXORk)
+  
+- [සාක්කි, දරාගැනීම සහ මන්ඥනා](https://www.youtube.com/watch?v=3Gzejz0EKvg)
+
+> very important sessions below, make sure you listen to it at least 3 times minimum. till you get hang of what is explained here. when i passed this junction my count was 5 times.
+
+- [ක්‍රියාවේ නොහටගත් බව තුලින් සක්කාය නිරෝධය දැකීම](https://www.youtube.com/watch?v=Gy47tO3Jxkc)
+
+- [ජාතියම දුක බව - උදයව්‍ය ඥානය](https://www.youtube.com/watch?v=riLESyx0noo)
+
+`72. still processing`
+
+- [චිත්ත වීථි ගැන නිවැරැදි අවබෝධයට | Ven kotmale Kumara Kassapa Thero | පූජ්‍ය කොත්මලේ කුමාර කස්සපහිමි](https://www.youtube.com/watch?v=buMH1eJZiMs)
+  
+- [යෝනිසෝ මනසිකාරය සිතීමක්ද?](https://www.youtube.com/watch?v=CgzkdupSjhM)
+  
+- [මන - ධම්ම](https://www.youtube.com/watch?v=vdZZLv9mJEw)
+
+- [මුලාවෙන් ගොඩනැගෙන පැවැත්ම](https://www.youtube.com/watch?v=QE8mt0bDndc)
+
+- [බටමිටි දෙකේ උපමාව තුලින් ප්‍රත්‍යෙන් උපන් බව විග්‍රහ කිරීම](https://www.youtube.com/watch?v=7FaC9ZvtfoY)
+
+- [හඳුනාගැනීම පිරිසිඳ දකිනවා යනු හඳුනාගැනීමේ ක්‍රියාවේ වරද ප්‍රඥාවෙන් දැකීමයි](https://www.youtube.com/watch?v=zhcEmapgYVo)
+
+- [සම්මතයෙන් ඔබ්බට | දහම් දෙසුම | නිවන සොයන්නන්ට | akampitha | Jeewithe Yatharthaya | video](https://www.youtube.com/watch?v=AlykkNCB6H4) 
