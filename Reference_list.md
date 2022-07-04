@@ -983,7 +983,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 - [ජාතියම දුක බව - උදයව්‍ය ඥානය](https://www.youtube.com/watch?v=riLESyx0noo)
 
-`72. still processing`
+`72. පැවැත්මෙහි නිරෝධය දකින විදිහ (2022-07-02 14-25 GMT-7).mp3`
 
 - [චිත්ත වීථි ගැන නිවැරැදි අවබෝධයට | Ven kotmale Kumara Kassapa Thero | පූජ්‍ය කොත්මලේ කුමාර කස්සපහිමි](https://www.youtube.com/watch?v=buMH1eJZiMs)
   
