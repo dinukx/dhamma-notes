@@ -979,9 +979,11 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 > very important sessions below, make sure you listen to it at least 3 times minimum. till you get hang of what is explained here. when i passed this junction my count was 5 times.
 
+- [ජාතියම දුක බව - උදයව්‍ය ඥානය](https://www.youtube.com/watch?v=riLESyx0noo)
+  
 - [ක්‍රියාවේ නොහටගත් බව තුලින් සක්කාය නිරෝධය දැකීම](https://www.youtube.com/watch?v=Gy47tO3Jxkc)
 
-- [ජාතියම දුක බව - උදයව්‍ය ඥානය](https://www.youtube.com/watch?v=riLESyx0noo)
+
 
 `72. පැවැත්මෙහි නිරෝධය දකින විදිහ (2022-07-02 14-25 GMT-7).mp3`
 
@@ -991,10 +993,33 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
   
 - [මන - ධම්ම](https://www.youtube.com/watch?v=vdZZLv9mJEw)
 
+- [දකිනවිට කිසිවක් නැත . . .](https://www.youtube.com/watch?v=QR-jx_r1Fh4)
+
+- [සම්මතයෙන් ඔබ්බට | දහම් දෙසුම | නිවන සොයන්නන්ට | akampitha | Jeewithe Yatharthaya | video](https://www.youtube.com/watch?v=AlykkNCB6H4) 
+
+> very important sessions below, make sure you listen to it at least 3 times minimum. till you get hang of what is explained here. when i passed this junction my count was 5 times.
+
 - [මුලාවෙන් ගොඩනැගෙන පැවැත්ම](https://www.youtube.com/watch?v=QE8mt0bDndc)
 
 - [බටමිටි දෙකේ උපමාව තුලින් ප්‍රත්‍යෙන් උපන් බව විග්‍රහ කිරීම](https://www.youtube.com/watch?v=7FaC9ZvtfoY)
 
 - [හඳුනාගැනීම පිරිසිඳ දකිනවා යනු හඳුනාගැනීමේ ක්‍රියාවේ වරද ප්‍රඥාවෙන් දැකීමයි](https://www.youtube.com/watch?v=zhcEmapgYVo)
 
-- [සම්මතයෙන් ඔබ්බට | දහම් දෙසුම | නිවන සොයන්නන්ට | akampitha | Jeewithe Yatharthaya | video](https://www.youtube.com/watch?v=AlykkNCB6H4) 
+
+`73. අවිද්‍යාව නොමැති බව ප්‍රඥාව ද (2022-07-09 15-07 GMT-7).mp3`
+
+- [භාෂාවට යටවීම නිසා තේරුම් ගැනීමට අපහසු කාරණා දෙක](https://www.youtube.com/watch?v=HMsmRZi32AE)
+  
+- [එතෙරවීම සහ මම එතෙරවීම](https://www.youtube.com/watch?v=9o9VqXWaDPo)
+
+- [මේ මොහොතේ අත්දකින දෙයෙහි ඇත්ත සෙවීමමයි එතෙර වීම](https://www.youtube.com/watch?v=tHT7HSUPZ5w)
+
+- [ප්‍රඥාවෙන් දැකිය යුතු පංච උපාදානස්කන්ධයේ ක්‍රියාකාරීත්වය](https://www.youtube.com/watch?v=eBUGt6BrMZ8)
+  
+> very important sessions below, make sure you listen to it at least 3 times minimum.
+
+- [සංඥාව - හඳුනාගැනීම - වැයම් නොකොට පිහිටාද නොසිට එතෙර වීම](https://www.youtube.com/watch?v=aH9dGMzeBYw)
+
+- [හඳුනාගැනීම නම් ක්‍රියාවේ මුලාව උදාහරණයක් තුලින් නුවණින් දැකීම2](https://www.youtube.com/watch?v=uIIubs4t4I8)
+
+- [සම්මා දිට්ඨි නුවණ](https://www.youtube.com/watch?v=UWFdR7qO-3M)
