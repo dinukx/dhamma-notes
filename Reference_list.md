@@ -1011,3 +1011,15 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [හඳුනාගැනීම නම් ක්‍රියාවේ මුලාව උදාහරණයක් තුලින් නුවණින් දැකීම2](https://www.youtube.com/watch?v=uIIubs4t4I8)
 
 - [සම්මා දිට්ඨි නුවණ](https://www.youtube.com/watch?v=UWFdR7qO-3M)
+
+`74. කර්ම සහ උත්පත්ති බවය(2022-07-23 14-54 GMT-7).mp3`
+
+- [Ven Mankadawala Sudassana Thero | 2017-09-12 සම්මා දිට්ඨියේ උපත කරා (සම්මා දිට්ඨි සූත්‍රය)](https://www.youtube.com/watch?v=wT8MYwuRuDg)
+
+- [සම්මා දිට්ඨි සූත්‍රය - 2 [ආහාර වාරය] (2022.06.19)](https://www.youtube.com/watch?v=L4H8l-y7FAg)
+  
+- [සම්මා දිට්ඨි සූත්‍රය - අතිපූජ්‍ය කොත්මලේ කුමාරකස්සප ස්වාමින්වහන්සේ](https://www.youtube.com/watch?v=BbL1Ud0UEZc)
+
+- [චක්ඛු සූත්‍රය (2022.07.24)](https://www.youtube.com/watch?v=i0paql0Ghnw)
+
+
