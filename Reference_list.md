@@ -5,25 +5,28 @@ Identifying `what is this talent` is very important. (This is `not` what you thi
 
 #### <b><u> Why search dhamma </u></b> 
 
-[Read this](https://github.com/dinukx/dhamma-notes/blob/main/why_search_dhamma.md)
+[Read this link](https://github.com/dinukx/dhamma-notes/blob/main/why_search_dhamma.md)
 
 #### <b><u> Problem of seeking dhamma in today's context </u></b> 
 
-[Read this](https://github.com/dinukx/dhamma-notes/blob/main/Problem_of_seeking_dhamma_in_today's_context.md)
+[Read this link](https://github.com/dinukx/dhamma-notes/blob/main/Problem_of_seeking_dhamma_in_today's_context.md)
 
 
 #### <b><u> What is this collection all about </u></b>
 
-TBA
+පෘථග්ජන පුද්ගලයෙක් විසින් ( මමත්වය තුළ ) සත්‍ය ගවේශනය කරනවිටදී විවිධ වූ කෝණයන් තුළින් දර්ශනය, විවිධ ස්වරූපයන්ගෙන් විශ්ලේෂණය වන බව දැනුනු විට ඒ එකදු කෝණයකට වත් නොඇලී, සත්‍ය ගවේෂණය සිදු කරන ආකාරය එකතුවක් ලෙස මෙලෙස තියා යමි. අද කාලයේදී ධර්ම ගවේෂණය youtube හරහා සිදුවෙන්නක් නිසා එම ධර්මස්කන්ධය navigate කරන්නේ කෙලෙසදැයි දැනගැනීම උදෙසා මෙම එකතුව ගයිඩන්ස් එකක් වශයෙන් තබා යන බවට මූලිකව අවබෝධ කල යුතුයි. 
 #### <b><u> How to navigate, this collection </u> </b> 
 
-<draft>
-first 10 videos - you can start listening to any references you prefer, 
+
+<b>first 10 videos</b>
+  
+you can start listening to any references you prefer, 
 try to find out things you dont understand ( what i did was i search youtube videos for those words to find meaning)
 10-20, videos are will talk about the depth of the journey, and basic knowledge you require to understand 
 what are we trying to do here.
 
-from 20 onwards
+<b>from 20 onwards</b>
+
 you need to start looking at different viewpoints of the same principle, specially from people/theros who passed this 
 junction (viewpoint) or who is in search.
 always when you start listening to these videos , try to see why this person/thero is telling this way, 
@@ -1032,6 +1035,6 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 - [අම්බලම, හෝටලයක් කරගන්න එපා ! 👑🏚💤🐟 | 2021.12.22 | දම් දෙසුම | අකම්පිත](https://www.youtube.com/watch?v=DT9TwWg5Hb8)
 
-`76. `
+`76. මම නැමති චක්‍රයෙන් මිදිම  `
 
 - [චක්ඛු සූත්‍රය (2022.07.24)](https://www.youtube.com/watch?v=i0paql0Ghnw)
