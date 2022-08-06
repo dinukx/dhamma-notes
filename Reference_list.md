@@ -4,11 +4,12 @@
 Identifying `what is this talent` is very important. (This is `not` what you think)
 
 #### <b><u> Why search dhamma </u></b> 
-
+ මෙය කියවා ඉන්න
 [Read this link](https://github.com/dinukx/dhamma-notes/blob/main/why_search_dhamma.md)
 
 #### <b><u> Problem of seeking dhamma in today's context </u></b> 
 
+ මෙය කියවා ඉන්න
 [Read this link](https://github.com/dinukx/dhamma-notes/blob/main/Problem_of_seeking_dhamma_in_today's_context.md)
 
 
@@ -40,17 +41,20 @@ observe what he is trying to convey.
 your goal is to understand why he is saying this, what does he know more than me,
 how to see what he see's from his eyes. 
 you should not compare your viewpoint or his. this is a path of enlightenment, its not a about holding on to a
-one view point (any), its always about letting go of all the viewpoints. so stop trying to find the right one.
-focus and listen to what these thero's are trying to explain.let those word paint a picture on your mind. dont pollute it by thinking about what it is. the purest form is the easiest to understand. 
+single view point (any), its always about `letting go of all the viewpoints`. so stop trying to find the `right` one.
+focus and listen to what these thero's are trying to explain. let those word paint a picture on your mind. don't pollute it by thinking about what it is. the purest form is the easiest to realization. 
 
 <b>from 45 onwards</b>
 
-so far, you have been looking at different viewpoints from wide vieraty of Theros and how they have realised dhamma. from here on words , we need to listen to `gihi-discussions` as well. some of them are in `Marga Sakachcha` section. this section will help you to enhance your viewpoint count. 
+so far, you have been looking at different viewpoints from wide verity of Theros and how they have realized dhamma. from here onwards , we need to listen to `gihi-discussions` as well. some of these conversations are in `Marga Sakachcha` section. this section will help you to enhance your viewpoint count. every explanation in this section, is relative to point that conversation is trying to convey. 
+
+`උපමාව නෙමෙයි අර්ථය බලන්න `, `තමා දරාගෙන සිටින කෝණයේ වැරැද්ද හඳුනාගන්න`
 
 <b>from 65 onwards</b>
 
 investigating the `Core dhamma principles` in practical day to day life. finding the edge problems and clearing them is what this section do. 
 
+ මේ හරියේ අර්ථ ගත වීම් නොතේරන ස්වභාවයක් පවතිනවා නම් තව හොඳට සුතමය වශයෙන් මේ ධර්මය පිරිසිදු විය යුතුයි. එසේ වුවහොත් තේරුන ස්වභාවයක් පවතින මට්ටමට නැවත ගොස් එතැන සිට අසාගෙන එන්න. 
 #### <b><u> where are the discussion videos </u> </b> 
 
 >listen to these first
