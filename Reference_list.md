@@ -53,9 +53,11 @@ investigating the `Core dhamma principles` in practical day to day life. finding
 
 #### <b><u> where are the discussion videos </u> </b> 
 
--[ Main dhamma Collection (tobe added)]()
 
--[ Marga sakachcha (tobe added)]()
+-[ Main dhamma Collection ](https://drive.google.com/drive/folders/1M5CGADd0YzWWgLmtBDXdMsiBo07dn8oX?usp=sharing)
+
+-[ Marga sakachcha ](https://drive.google.com/drive/folders/1WwPO250hN6CKBo9uYQ3vRNDbn2kxR0Ma?usp=sharing)
+
 
 #### <b><u> Order of things </u> </b> 
 
@@ -674,11 +676,15 @@ https://www.youtube.com/watch?v=IPR8Ex4p-94)
 - [සෝතාපන්නවීමට අවශ්‍ය සමාධිය (2022.01.15)](
 https://www.youtube.com/watch?v=4rOglzp5394)
 
+> special playlist
+- [නිවන් දකින්න සුදුසුකම්](https://www.youtube.com/playlist?list=PLl_HpT7h7Vicn82qwVRimgJjqviKpQsCH)
+
 - [සම්මා දිට්ඨිය (2022.02.17)](
 https://www.youtube.com/watch?v=EkL704XNXO4)
 
 
 `56. දැනුම සහ අවබෝධය (2022-03-05 13:03 GMT-8)`
+
 
 
 - [ධර්ම සාකච්ඡාව - 304 | දැනීමම මම ද? (2022.02.24)](
@@ -1050,6 +1056,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 `76. conversion after වංගීස thero call (2022-08-01 02-17 GMT-7)`
 
 
+
 `77. මම නැමති චක්‍රයෙන් මිදිම  `
 
 - [චක්ඛු සූත්‍රය (2022.07.24)](https://www.youtube.com/watch?v=i0paql0Ghnw)
@@ -1063,4 +1070,8 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 > 
 - [SADAHAM SAWANA || සතිපට්ඨානයෙන් නිවන් මගට || Ven Mankadawala Sudassana Himi](https://www.youtube.com/watch?v=wRZ6BDbZT3I)
 
-- [ගිහි ගෙයි සිට වුවත් අවබෝධ කල හැකි චතුරාර්‍ය සත්‍යය - Ven. Dankande Dhammaratana Thero](https://www.youtube.com/watch?v=jZkhiOtq8J8)
+- [සූත්‍ර අධ්‍යනයට ඔවදන්](https://www.youtube.com/watch?v=XODWLuduG8Y)
+
+- [ඇත, නැත, නිරෝධය සහ හේතුඵල දහම](https://www.youtube.com/watch?v=XCPf_Rhs30U)
+- [දැක්මක් වියයුතු ආර්ය සත්‍යය හතර - සම්මා දිට්ඨි සුත්‍රය](https://www.youtube.com/watch?v=8d9A0cadYzk)
+- [ලෝකයේ ඉන්න රහතන් වහන්සේ | සක්කාය නිරෝදය | Sakkaya Nirodaya](https://www.youtube.com/watch?v=z_I2RsT-_Ww)
