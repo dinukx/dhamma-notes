@@ -53,6 +53,10 @@ investigating the `Core dhamma principles` in practical day to day life. finding
 
 #### <b><u> where are the discussion videos </u> </b> 
 
+>listen to these first
+
+- [Introductions ~to be added~]()
+
 
 -[ Main dhamma Collection ](https://drive.google.com/drive/folders/1M5CGADd0YzWWgLmtBDXdMsiBo07dn8oX?usp=sharing)
 
