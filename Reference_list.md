@@ -1092,3 +1092,4 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 - [යෙදීම අනුව සෙවීම --- සතිපට්ඨානය](https://www.youtube.com/watch?v=XtoGOht5Lg0&list=WL&index=8)
 - [සම්මා දිට්ඨියට හොඳම පරියාය](https://www.youtube.com/watch?v=2oWrB3VbKKM&list=WL&index=9)
+- [වයධම්මා සංඛාරා - මෙහි අර්ථය සාසනයේ හදවතයි](https://www.youtube.com/watch?v=vncJrQWutcM)
