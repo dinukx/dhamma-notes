@@ -20,7 +20,7 @@ Identifying `what is this talent` is very important. (This is `not` what you thi
 
 <b>first 10 videos</b>
 
-this section lay the foundation on how to prep for searching dhamma. when someone wants to make a house, first thing he has to do is to understand how a house become to exist. inorder to have a house, a solid foundation is required. then first things we need to is to find what are the components the house is made of. similarly 
+this section lay the foundation on how to prep for searching dhamma. when someone wants to make a house, first thing he has to do is to understand how a house become to exist. in order to have a house, a solid foundation is required. then first things we need to is to find what are the components the house is made of. similarly 
 this section teaches you 3 things
 - what is required to understand dhamma
 - repeatability, on a shedule but effort of creating dedicated time for learn dhamma in a consistant cycle
@@ -582,7 +582,7 @@ https://youtu.be/wEXN9sM3XC8)
 - [පටිච්චසමුප්පාදය | අතිපූජ්‍ය මාන්කඩවල සුදස්සන හිමි | Ven Mankadawala Sudassana Thero](
 https://www.youtube.com/watch?v=LwR5cQE8X-4)
 
-
+- [එතෙර වීමට ත්‍රිලක්ෂණ දැක්ම](https://www.youtube.com/watch?v=wlyARbP1THc)
 
 `51. සංස්කරණය දකින අයුරු (2022-01-31 at 00:20 GMT-8)`
 
@@ -660,6 +660,7 @@ https://www.youtube.com/watch?v=IZw87vJOVJw)
 
 - [වර්තමාන මොහොතේ සිත පිහිටුවාගැනීම ප්‍රායෝගිකව - Meemure Dhammawansha Thero, මීමුරේ ධම්මවංස හිමි](
 https://www.youtube.com/watch?v=N7tlv6BZogo)
+
 
 
 `55. අනුගත වීම ගැඹුරට (2022-02-19 14:11 GMT-8)`
@@ -1064,11 +1065,14 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 `77. මම නැමති චක්‍රයෙන් මිදිම  `
 
 - [චක්ඛු සූත්‍රය (2022.07.24)](https://www.youtube.com/watch?v=i0paql0Ghnw)
-
+  
+- [ඇසීම නම් මන්ඥනාවේ (ක්‍රියාවේ) යථාර්තය ප්‍රඥාවෙන් දැකීම එතෙර වීමයි](https://www.youtube.com/watch?v=qIucVrxnipA)
+  
 > samma dittiya thawamath awaboda une naththam, 71,72,73 reference aye ahanna. then listen to below link again. Soyana bawa dakina thana soyana bawen nirudda weema hadunaa ganna.
 
 - [සම්මා දිට්ඨි නුවණ](https://www.youtube.com/watch?v=UWFdR7qO-3M)
-
+- [පැවැත්ම - අන්ත නොයෙදීම - නිරෝධය - ප්‍රත්‍යෙන් ඉපදීම](https://www.youtube.com/watch?v=u5-jWCewJRE&list=WL)
+ 
 
 > From here onwards, its all about realising your understanding from real practical situations in life. below session shows couple of practical points which may help you
 > 
@@ -1080,4 +1084,10 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [දැක්මක් වියයුතු ආර්ය සත්‍යය හතර - සම්මා දිට්ඨි සුත්‍රය](https://www.youtube.com/watch?v=8d9A0cadYzk)
 - [ලෝකයේ ඉන්න රහතන් වහන්සේ | සක්කාය නිරෝදය | Sakkaya Nirodaya](https://www.youtube.com/watch?v=z_I2RsT-_Ww)
 - [ගිහිජිවිතයක් ගතකරමින් අතහැරීම පුරුදු කල යුත්තේ කෙසේද? Maha Rahathun Wadi Maga Osse](https://www.youtube.com/watch?v=jY8b_fRQG8A)
+  
 - [ලෝකයට යෑමට දී ඔබ නිවීයන්න](https://www.youtube.com/watch?v=dv_ABkWDUEE)
+
+- [උපමා සහ ධර්මාවබෝධය](https://www.youtube.com/watch?v=AewOokH3Qq8&list=WL&index=4)
+
+- [යෙදීම අනුව සෙවීම --- සතිපට්ඨානය](https://www.youtube.com/watch?v=XtoGOht5Lg0&list=WL&index=8)
+- [සම්මා දිට්ඨියට හොඳම පරියාය](https://www.youtube.com/watch?v=2oWrB3VbKKM&list=WL&index=9)
