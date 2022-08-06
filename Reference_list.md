@@ -30,7 +30,7 @@ while you are listening, you can start listening to any references you prefer,( 
 
 <b>10-20 videos</b>
 
-this section will talk about the depth of the journey, and basic knowledge you require to understand what are we trying to do here. if you hear new words while listening to this section, those are the meanings you require to realize(prathyaksha) this dhamma. so learn them well. listen to any dhamma videos ,which will show you different views of the same word ( explained differently). think about if that is just a single word, how did the meanings differ. if there are different meanings, did that meaning ever was a part of the sound you hear. is it only  a constructed a mental model about what was felt. explore your mind within.
+this section will talk about the depth of the journey, and basic knowledge you require to understand what are we trying to do here. if you hear new words while listening to this section, those are the meanings you require to realize(prathyaksha) this dhamma. so learn them well. listen to any dhamma videos ,which will show you different views of the same word ( explained differently). think about if that is just a single word, how did the meanings differ. if there are different meanings, did that meaning ever was a part of the sound you hear. is it only  a constructed mental model about what was felt. explore your mind within.
 
 <b>from 20 onwards</b>
 
