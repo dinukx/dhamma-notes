@@ -1028,6 +1028,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [මේ මොහොතේ අත්දකින දෙයෙහි ඇත්ත සෙවීමමයි එතෙර වීම](https://www.youtube.com/watch?v=tHT7HSUPZ5w)
 
 - [ප්‍රඥාවෙන් දැකිය යුතු පංච උපාදානස්කන්ධයේ ක්‍රියාකාරීත්වය](https://www.youtube.com/watch?v=eBUGt6BrMZ8)
+- [ලුණු රස දැනීම විමසීම](https://www.youtube.com/watch?v=DqM-qzSebaM)
   
 > very important sessions below, make sure you listen to it at least 3 times minimum.
 
