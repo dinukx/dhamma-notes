@@ -1,6 +1,8 @@
 #### <b><u> Why search dhamma </u></b> 
 
-Simple, in life all of you want to be is `happy`, have a good experiance and avoid sadness at all times.  so in order to chaise that dream (desired state) you undertake hardship but the happyness doesnt stay, it comes and goes, never permenant. after sometime you undertake this hardship
+
+
+In life all of you want to be is `happy`, have a good experiance and avoid sadness at all times.  so in order to chaise that dream (desired state) you undertake hardship but the happyness doesnt stay, it comes and goes, never permenant. after sometime you undertake this hardship
 as a survival cycle. you just endure weight of the hardship, because of the value you given to the dream. 
 
 All of this simply because `the need` we had to be `happy`. if we look at our individual experiance, we know that, we dont even have the control over next `thought`, but we never realized that. We cant be sure what sort of `thought`, the nextone would be. so searching for happyness is something we really cant control. similary experiancing happiness is also the same, doesnt last. changes often. but we want to keep it(happiness) for long, ever lasting. but so far no one has suceeded. if we cant control the next thought, then there is no confidence that i would be able to satisfy my need to `be happy and stay there` dream. if thats the case, we never had control over being happy or sad either, but experianced it happened.

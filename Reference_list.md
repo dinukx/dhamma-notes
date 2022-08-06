@@ -19,26 +19,43 @@ Identifying `what is this talent` is very important. (This is `not` what you thi
 
 
 <b>first 10 videos</b>
+
+this section lay the foundation on how to prep for searching dhamma. when someone wants to make a house, first thing he has to do is to understand how a house become to exist. inorder to have a house, a solid foundation is required. then first things we need to is to find what are the components the house is made of. similarly 
+this section teaches you 3 things
+- what is required to understand dhamma
+- repeatability, on a shedule but effort of creating dedicated time for learn dhamma in a consistant cycle
+- finding viewpoints that can challenge your current understanding, wisdom can be only grown by understanding multiple viewpoints . looking at it in different ways , but never holding on to one.
   
-you can start listening to any references you prefer, 
-try to find out things you dont understand ( what i did was i search youtube videos for those words to find meaning)
-10-20, videos are will talk about the depth of the journey, and basic knowledge you require to understand 
-what are we trying to do here.
+while you are listening, you can start listening to any references you prefer,( from any one). try to find out things you dont understand ( what i did was i search youtube videos for those words to expand my understanding)
+
+<b>10-20 videos</b>
+
+this section will talk about the depth of the journey, and basic knowledge you require to understand what are we trying to do here. if you hear new words while listening to this section, those are the meanings you require to realize(prathyaksha) this dhamma. so learn them well. listen to any dhamma videos ,which will show you different views of the same word ( explained differently). think about if that is just a single word, how did the meanings differ. if there are different meanings, did that meaning ever was a part of the sound you hear. is it only  a constructed a mental model about what was felt. explore your mind within.
 
 <b>from 20 onwards</b>
 
-you need to start looking at different viewpoints of the same principle, specially from people/theros who passed this 
-junction (viewpoint) or who is in search.
+you need to start looking at different viewpoints of the same principle, specially from people/theros who passed this junction (viewpoint) or who is in search.
 always when you start listening to these videos , try to see why this person/thero is telling this way, 
 observe what he is trying to convey. 
 your goal is to understand why he is saying this, what does he know more than me,
 how to see what he see's from his eyes. 
 you should not compare your viewpoint or his. this is a path of enlightenment, its not a about holding on to a
 one view point (any), its always about letting go of all the viewpoints. so stop trying to find the right one.
-focus and listen to what these thero's are trying to explain.
+focus and listen to what these thero's are trying to explain.let those word paint a picture on your mind. dont pollute it by thinking about what it is. the purest form is the easiest to understand. 
 
-#### <b><u> How to navigate, dhamma in todays context </u> </b> 
-TBA
+<b>from 45 onwards</b>
+
+so far, you have been looking at different viewpoints from wide vieraty of Theros and how they have realised dhamma. from here on words , we need to listen to `gihi-discussions` as well. some of them are in `Marga Sakachcha` section. this section will help you to enhance your viewpoint count. 
+
+<b>from 65 onwards</b>
+
+investigating the `Core dhamma principles` in practical day to day life. finding the edge problems and clearing them is what this section do. 
+
+#### <b><u> where are the discussion videos </u> </b> 
+
+-[ Main dhamma Collection (tobe added)]()
+
+-[ Marga sakachcha (tobe added)]()
 
 #### <b><u> Order of things </u> </b> 
 
@@ -109,12 +126,6 @@ https://www.youtube.com/watch?v=OTtTdvUkpvM)
 
 
 `25.  කාලයේ අනිත්‍ය ස්භාවය (2021-06-28 at 02:24 GMT-7)`
-
-- [කාලය, අවකාශය සහ විඥාණය 1 - Space, Time & Consciousness](https://www.youtube.com/watch?v=mpC-jWBNalU)
- 
- - [කාලය, අවකාශය සහ විඥාණය 2 - Space,Time and Consciousness 2](https://www.youtube.com/watch?v=jQjuC9saUkg)
- - [කාලය, අවකාශය සහ විඥාණය 3 - Space & Time 3](https://www.youtube.com/watch?v=2ljgcBqRmrM)
- - [කාලය,අවකාශය සහ විඥාණය 4 - Space, Time & Consciousness 4](https://www.youtube.com/watch?v=PYD-Ntm_fDE)
 
 - [~චේතනා, කාලය හා සතර අපායෙන් මිදීම ~ගරු විමුත්තා තෙරණි~](https://www.youtube.com/watch?v=S09-AnqhK6A)
 
@@ -1013,6 +1024,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 - [හඳුනාගැනීම නම් ක්‍රියාවේ මුලාව උදාහරණයක් තුලින් නුවණින් දැකීම2](https://www.youtube.com/watch?v=uIIubs4t4I8)
 
+> Ethera weema. haduna ganeema ( wimukthiya ta pilisaranaya)
 - [සම්මා දිට්ඨි නුවණ](https://www.youtube.com/watch?v=UWFdR7qO-3M)
 
 `74. බටමිටි දෙක ගැන සාකච්ඡා (2022-07-25 02-26 GMT-7).mp3`
@@ -1035,6 +1047,20 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 - [අම්බලම, හෝටලයක් කරගන්න එපා ! 👑🏚💤🐟 | 2021.12.22 | දම් දෙසුම | අකම්පිත](https://www.youtube.com/watch?v=DT9TwWg5Hb8)
 
-`76. මම නැමති චක්‍රයෙන් මිදිම  `
+`76. conversion after වංගීස thero call (2022-08-01 02-17 GMT-7)`
+
+
+`77. මම නැමති චක්‍රයෙන් මිදිම  `
 
 - [චක්ඛු සූත්‍රය (2022.07.24)](https://www.youtube.com/watch?v=i0paql0Ghnw)
+
+> samma dittiya thawamath awaboda une naththam, 71,72,73 reference aye ahanna. then listen to below link again. Soyana bawa dakina thana soyana bawen nirudda weema hadunaa ganna.
+
+- [සම්මා දිට්ඨි නුවණ](https://www.youtube.com/watch?v=UWFdR7qO-3M)
+
+
+> From here onwards, its all about realising your understanding from real practical situations in life. below session shows couple of practical points which may help you
+> 
+- [SADAHAM SAWANA || සතිපට්ඨානයෙන් නිවන් මගට || Ven Mankadawala Sudassana Himi](https://www.youtube.com/watch?v=wRZ6BDbZT3I)
+
+- [ගිහි ගෙයි සිට වුවත් අවබෝධ කල හැකි චතුරාර්‍ය සත්‍යය - Ven. Dankande Dhammaratana Thero](https://www.youtube.com/watch?v=jZkhiOtq8J8)
