@@ -1097,3 +1097,18 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [යෙදීම අනුව සෙවීම --- සතිපට්ඨානය](https://www.youtube.com/watch?v=XtoGOht5Lg0&list=WL&index=8)
 - [සම්මා දිට්ඨියට හොඳම පරියාය](https://www.youtube.com/watch?v=2oWrB3VbKKM&list=WL&index=9)
 - [වයධම්මා සංඛාරා - මෙහි අර්ථය සාසනයේ හදවතයි](https://www.youtube.com/watch?v=vncJrQWutcM)
+
+`78.  එතෙර වීමෙන් ඔබ්බට`
+
+- [එතෙරවීම අරමුණු කරගෙන උපසීව මානවකයා තථාගතයන් වහන්සේගෙන් විමසූ ප්‍රශ්ණ හතර](https://www.youtube.com/watch?v=HiL9Ac9Js_Y)
+   - උපසීව මානවකයා තථාගතයන් වහන්සේගෙන් විමසූ ප්‍රශ්ණ හතර;
+
+      1. ඇසුරුකිරීමක් නැතිව (නත්ති කිංචි) හුදකලාවේ සිටියද මට  ඕඝය තරණය කිරීමට නොහැකි විය. එනිසා මේ ඕඝය තරණය කිරීමට කුමක් ඇසුරු කලයුතුද ? [0:20](https://www.youtube.com/watch?v=HiL9Ac9Js_Y&t=20s)
+      2. x [23:43](https://www.youtube.com/watch?v=HiL9Ac9Js_Y&t=1423s)
+      3. x [28:40](https://www.youtube.com/watch?v=HiL9Ac9Js_Y&t=1720s)
+      4. x [36:54](https://www.youtube.com/watch?v=HiL9Ac9Js_Y&t=2214s)
+- [උපසීව සූත්‍රය, නන්‍ද සූත්‍රය, හේමක සූත්‍රය, තෝදෙය්‍ය සූත්‍රය (2021.12.07)](https://www.youtube.com/watch?v=cDsd-358uyo)
+- [නිවනේ නිවීම 11 - Katukurunde Nanananda Bhikkhu](https://www.youtube.com/watch?v=IwSI3s8rCIw)
+- [සුඤඤත සමාපත්තිය අභිඤ්ඤා දේසනා 74 || එංගලන්තයේ සිට අරහත්වයකරා යනමග||Buddothpado Aryanwahanse](https://www.youtube.com/watch?v=nVRZwU32Rno)
+- [ඇයි සමථය ප්‍රත්‍යක්ෂයට මාර්ගය නොවන්නේ || Out Of The Box || @Dhamma Siddhi](https://www.youtube.com/watch?v=N0fgOYBWkI8)
+- [සුඤ්ඤතෝ ලෝකං අවෙක්ඛස්සු || ශ්‍රද්ධානු⁣සාරී මාර්ගය || Where am I ? || @Dhamma Siddhi](https://www.youtube.com/watch?v=iBnjalHs5V4)
