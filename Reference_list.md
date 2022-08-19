@@ -1073,7 +1073,8 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
   
 - [ඇසීම නම් මන්ඥනාවේ (ක්‍රියාවේ) යථාර්තය ප්‍රඥාවෙන් දැකීම එතෙර වීමයි](https://www.youtube.com/watch?v=qIucVrxnipA)
   
-> samma dittiya thawamath awaboda une naththam, 71,72,73 reference aye ahanna. then listen to below link again. Soyana bawa dakina thana soyana bawen nirudda weema hadunaa ganna.
+> samma dittiya thawamath awaboda une naththam, 71,72,73 reference aye ahanna. then listen to below links again. if it is too deep, divide it two segements,and repeate first and second seperatly. it helps to consume the content better. 
+>  <b>Soyana bawa dakina thana soyana bawen nirudda weema hadunaa ganna.</b>
 
 - [සම්මා දිට්ඨි නුවණ](https://www.youtube.com/watch?v=UWFdR7qO-3M)
 - [පැවැත්ම - අන්ත නොයෙදීම - නිරෝධය - ප්‍රත්‍යෙන් ඉපදීම](https://www.youtube.com/watch?v=u5-jWCewJRE&list=WL)
@@ -1112,3 +1113,38 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [සුඤඤත සමාපත්තිය අභිඤ්ඤා දේසනා 74 || එංගලන්තයේ සිට අරහත්වයකරා යනමග||Buddothpado Aryanwahanse](https://www.youtube.com/watch?v=nVRZwU32Rno)
 - [ඇයි සමථය ප්‍රත්‍යක්ෂයට මාර්ගය නොවන්නේ || Out Of The Box || @Dhamma Siddhi](https://www.youtube.com/watch?v=N0fgOYBWkI8)
 - [සුඤ්ඤතෝ ලෝකං අවෙක්ඛස්සු || ශ්‍රද්ධානු⁣සාරී මාර්ගය || Where am I ? || @Dhamma Siddhi](https://www.youtube.com/watch?v=iBnjalHs5V4)
+
+
+`79. ජිනාලංකාර ස්වාමීන් වහන්සේගෙන් ලැබුන ඔවදන් පිළිඹද සාකච්ඡාව`
+
+>ජිනාලංකාර ස්වාමීන් වහන්සේ සමඟ පැවැත්වූ සාකච්ඡා සහ ඉන් පසු ඒ ගැන අපි දැකපු කෝණය, තුළ හටගත් සියුම් තැන් ගැන විශ්ලේෂණය පහතින් ( marga sakachcha section eke 56,57,58).
+
+  - [56: Discussion in the car](https://drive.google.com/file/d/1-OWiPKh37qIKNrwoVmAb1-6Eil9OVTFI/view?usp=sharing)
+
+  - [57: discussion at the temple](
+  https://drive.google.com/file/d/1-R0wvdYgYq59DmeG_CB3UMDC4n0WakXV/view?usp=sharing)
+
+  - [58: post discussion on what we understood about the subtle points that thero was making
+  ](https://drive.google.com/file/d/1-T5Uy7LdZ5Hrbaay1LG3Aa9uwd-r13uN/view?usp=sharing)
+
+  > other important references
+
+  - [චතුරාර්‍ය සත්‍ය පංච උපාදානස්කන්ධය & පටිච්ච සමුප්පාදය](https://www.youtube.com/watch?v=4Ovp_mD0tmQ)
+  - [ඇතුළත කථාව - Most Ven. Dhammajiva](https://www.youtube.com/watch?v=OnIjqXir0_E)
+  - [ගිහි ගෙයි සිට වුවත් අවබෝධ කල හැකි චතුරාර්‍ය සත්‍යය - Ven. Dankande Dhammaratana Thero](https://www.youtube.com/watch?v=jZkhiOtq8J8)
+  - [අපි රැවටුනු තරම්, අවසන් වෙනකම් බැලුවොත් ඔබ පුදුම වේවි.](https://www.youtube.com/watch?v=WJC_o0OzEf8)
+  - [ග්‍රන්ථදුරය අභිබවා විදර්ශනාදුරය අවදිවිය 40 || Buddothpado Aryanwahanse](https://www.youtube.com/watch?v=P60g_PmhvNA)
+  - [භාවනාව වැඩිය යුත්තේ කෙසේද ? කුමකටද ? - Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=X9S6DSpPiIM)
+  - [ඉන්ද්‍රීය සංවරය - නිමිති, මැනීම, බව සහ ලෝකය](https://www.youtube.com/watch?v=2XXLQ2Bexx8)
+  - [බුදුන් සොයා යෑම - 3](https://www.youtube.com/watch?v=uVvtbNv8LK0)
+  - [Rev. Dhamma Vijitha Mehenin Wahanse ~ 01. පටිච්ඡ සමුප්පාදයේ ප්‍රායෝගික යෙදීම්](https://www.youtube.com/watch?v=HC2UzCUfO9k)
+  - [Rev. Dhamma Vijitha Mehenin Wahanse ~ 04. උදයව්‍ය ඥාණය](https://www.youtube.com/watch?v=qb6DRHegs0o)
+  > now listen to this again
+  - [ඇත නැත අන්ත - උදය වැය](https://www.youtube.com/watch?v=friBIHQOrf8)
+  - [රූපය නිර්වචනය සහ විමුක්තිය ලෙස රැවටෙන බුදුන්ගේ දර්මය නොවන අරූප සමාධි](https://www.youtube.com/watch?v=kVOS_h2e15s)
+
+`80.  සංඥාවේ විපාකය (2022-08-14 11-37 GMT-12)`
+
+- [සංඥාව පිරිසිඳ දැකීම 1 - මිරිඟුව උපමාව](https://www.youtube.com/watch?v=osflt2MbGoU)
+- [සංඥාව (හඳුනාගැනීමේ ක්‍රියාව) ප්‍රායෝගිකව විමසීම](https://www.youtube.com/watch?v=BCOJFVF_-Ak)
+- [සංඥාව (හඳුනාගැනීම) විග්‍රහය](https://www.youtube.com/watch?v=wegKi4aZVG8)
