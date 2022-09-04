@@ -1147,7 +1147,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
   - [රූපය නිර්වචනය සහ විමුක්තිය ලෙස රැවටෙන බුදුන්ගේ දර්මය නොවන අරූප සමාධි](https://www.youtube.com/watch?v=kVOS_h2e15s)
   
   > Reading meterials
-  - [දහමේ හරය](https://github.com/dinukx/dhamma-notes/other_dhamma_views/දහමේ_හරය.MD)
+  - [දහමේ හරය](https://github.com/dinukx/dhamma-notes/blob/main/other_dhamma_views/%E0%B6%AF%E0%B7%84%E0%B6%B8%E0%B7%9A_%E0%B7%84%E0%B6%BB%E0%B6%BA.MD)
 
 `80.  සංඥාවේ විපාකය (2022-08-14 11-37 GMT-12)`
 
