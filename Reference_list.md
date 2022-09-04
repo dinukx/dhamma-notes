@@ -1193,3 +1193,10 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 > 
 > [61. kasun & Lasnath Mahathmaya Discussion](https://drive.google.com/file/d/1AiSKHag-VZ7pJ8q4indlPwnVpS6Mwbf9/view)
 
+`83. භාවනාවේ වැදගත්කම සොයායෑම(2022-09-04 09-27 GMT-12)`
+
+> make sure you listen to `marga sakachcha session 61` before `83. භාවනාවේ වැදගත්කම සොයායෑම`. ( above link)
+
+- [ත්‍රිජ කාය තේරුම් ගමු චේතෝ විමුක්තිය "සමථ" සහ ප්‍රඥා විමුක්තිය "විපස්සනා"](https://www.youtube.com/watch?v=Wea2ljhfJM0)
+
+- [9. පඨමධ්‍යානය​ - සජීවී ධම්ම දේශණාව - 25/09/2021](https://www.youtube.com/watch?v=KE2RkH41SZI&t=0s) 
