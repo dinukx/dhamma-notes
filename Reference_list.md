@@ -1041,6 +1041,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [හඳුනාගැනීම නම් ක්‍රියාවේ මුලාව උදාහරණයක් තුලින් නුවණින් දැකීම2](https://www.youtube.com/watch?v=uIIubs4t4I8)
 
 > Ethera weema. haduna ganeema ( wimukthiya ta pilisaranaya)
+
 - [සම්මා දිට්ඨි නුවණ](https://www.youtube.com/watch?v=UWFdR7qO-3M)
 
 `74. බටමිටි දෙක ගැන සාකච්ඡා (2022-07-25 02-26 GMT-7).mp3`
@@ -1136,15 +1137,56 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
   - [ග්‍රන්ථදුරය අභිබවා විදර්ශනාදුරය අවදිවිය 40 || Buddothpado Aryanwahanse](https://www.youtube.com/watch?v=P60g_PmhvNA)
   - [භාවනාව වැඩිය යුත්තේ කෙසේද ? කුමකටද ? - Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=X9S6DSpPiIM)
   - [ඉන්ද්‍රීය සංවරය - නිමිති, මැනීම, බව සහ ලෝකය](https://www.youtube.com/watch?v=2XXLQ2Bexx8)
-  - [බුදුන් සොයා යෑම - 3](https://www.youtube.com/watch?v=uVvtbNv8LK0)
   - [Rev. Dhamma Vijitha Mehenin Wahanse ~ 01. පටිච්ඡ සමුප්පාදයේ ප්‍රායෝගික යෙදීම්](https://www.youtube.com/watch?v=HC2UzCUfO9k)
   - [Rev. Dhamma Vijitha Mehenin Wahanse ~ 04. උදයව්‍ය ඥාණය](https://www.youtube.com/watch?v=qb6DRHegs0o)
+  > this is a must listen
+  - [බුදුන් සොයා යෑම - 3](https://www.youtube.com/watch?v=uVvtbNv8LK0)
+  - [බුදුන් සොයා යෑම - 2](https://www.youtube.com/watch?v=C-GKyVpiGUE)
   > now listen to this again
   - [ඇත නැත අන්ත - උදය වැය](https://www.youtube.com/watch?v=friBIHQOrf8)
   - [රූපය නිර්වචනය සහ විමුක්තිය ලෙස රැවටෙන බුදුන්ගේ දර්මය නොවන අරූප සමාධි](https://www.youtube.com/watch?v=kVOS_h2e15s)
+  
+  > Reading meterials
+  - [දහමේ හරය](https://github.com/dinukx/dhamma-notes/other_dhamma_views/දහමේ_හරය.MD)
 
 `80.  සංඥාවේ විපාකය (2022-08-14 11-37 GMT-12)`
 
 - [සංඥාව පිරිසිඳ දැකීම 1 - මිරිඟුව උපමාව](https://www.youtube.com/watch?v=osflt2MbGoU)
 - [සංඥාව (හඳුනාගැනීමේ ක්‍රියාව) ප්‍රායෝගිකව විමසීම](https://www.youtube.com/watch?v=BCOJFVF_-Ak)
 - [සංඥාව (හඳුනාගැනීම) විග්‍රහය](https://www.youtube.com/watch?v=wegKi4aZVG8)
+
+- [පංච උපාදානස්කන්ධය කියන්නේ අවිද්‍යාවෙන් මිදීමට උපකාරී වන පදනමක් මිස ඇත්තට තියෙන දෙයක් නොවේ](https://www.youtube.com/watch?v=n-2minvcSvU)  
+
+`81. භාවනාමය ප්‍රඥාවේ වැදගත්කම (2022-08-21 09-55 GMT-12)`
+
+- [අනිත්‍ය දුක්ඛ අනත්ත යථාවබෝධය](https://www.youtube.com/watch?v=Gy-2vOzBtUI)
+- [ඉපදීමම දුක බව](https://www.youtube.com/watch?v=sAzfu_DL23g)
+- [උදයබ්භ ඥානය](https://www.youtube.com/watch?v=cR3yYRV-uRk)
+- [No 36 - සක්මන් භාවනාව](https://www.youtube.com/watch?v=jlVoWp9dc2I)
+  
+> addtional references to fill the gaps
+> - [අපට දර්මය නොතේරෙන්නේ ඇයි ?](https://www.youtube.com/watch?v=OE_DWT4IXwk)
+> - [හත්‍ථපාදූපම සූත්‍රය (2022.08.13)](https://www.youtube.com/watch?v=nq36OlinsaQ)
+> - [රූප වේදනා සංඥා සංඛාර වින්ඥාන සහ පංච උපාදානස්කන්ධ](https://www.youtube.com/watch?v=ISFzs2dSDxk)
+> - [දේවදහ සූත්‍රය (2022.08.18)](https://www.youtube.com/watch?v=z6l6QjXnoks)  
+
+`82. නාමයෙන් එසවුන රූපය(2022-08-22 21-14 GMT-12)`
+
+
+- [තර්කය සහ විචක්ෂණය](https://www.youtube.com/watch?v=EifbHxAcgoY)
+- [පණ්ඩිතයින් විසින් ප්‍රශ්න කළ යුතු මිථ්‍යාදෘෂ්ටි තුන | තිත්ථායතන සූත්‍රය](https://www.youtube.com/watch?v=u3SbgiiSDFQ&t=0s)
+- [පන්සිල් මළුව - පූජ්‍ය අලව්වේ අනෝමදස්සි හිමි (2022.07.24)](https://www.youtube.com/watch?v=ieNoWr1Fn7E)
+- [නිවන් දැකීමේ රගපෑම නඩත්තුව | රහතන් වහන්සේගේ චරිතය | අතිපූජ්‍ය බණ්ඩාරවෙල වංගීස ස්වාමින් වහන්සේ](https://www.youtube.com/watch?v=6Y7Ctvmj__M)
+- [සසර තනන වඩුවා | දෙයක් "මම" හෝ "මගේ" වෙන්නේ කොහොමද? | අතිපූජ්‍ය බණ්ඩාරවෙල වංගීස ස්වාමින් වහන්සේ](https://www.youtube.com/watch?v=ASvvrjuIngw) 
+
+> very important sessions, listen well.
+- [අන්ත ඉක්මවීම - 1](https://www.youtube.com/watch?v=1yZrx0hY8EQ)
+- [අන්ත ඉක්මවීම - 2](https://www.youtube.com/watch?v=l9r99WfFwL4)
+- [අන්ත ඉක්මවීම 3](https://www.youtube.com/watch?v=Qyk_5F0HDW4)
+- [අන්ත ඉක්මවීම 4](https://www.youtube.com/watch?v=vuTFpgcTp4I)
+
+> ලසන්ත මහත්තයා සහ කසුන් පැවැත්වූ අනර්ඝ සාකච්ඡාව 
+> marga sakachcha session 61.
+> 
+> [61. kasun & Lasnath Mahathmaya Discussion](https://drive.google.com/file/d/1AiSKHag-VZ7pJ8q4indlPwnVpS6Mwbf9/view)
+
