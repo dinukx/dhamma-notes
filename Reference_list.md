@@ -21,17 +21,20 @@ Identifying `what is this talent` is very important. (This is `not` what you thi
 
 <b>first 10 videos</b>
 
-this section lay the foundation on how to prep for searching dhamma. when someone wants to make a house, first thing he has to do is to understand how a house become to exist. in order to have a house, a solid foundation is required. then first things we need to is to find what are the components the house is made of. similarly 
+this section lay the foundation on how to prep for searching dhamma. when someone wants to make a house, first thing he has to do is to understand how a house become to exist. in order to have a house, a solid foundation is required. So understanding the components `the house` is made of is where the journey should start. similarly 
 this section teaches you 3 things
 - what is required to understand dhamma
 - repeatability, on a shedule but effort of creating dedicated time for learn dhamma in a consistant cycle
 - finding viewpoints that can challenge your current understanding, wisdom can be only grown by understanding multiple viewpoints . looking at it in different ways , but never holding on to one.
   
-while you are listening, you can start listening to any references you prefer,( from any one). try to find out things you dont understand ( what i did was i search youtube videos for those words to expand my understanding)
+while you are listening to this section, you can start listening to any references you prefer,( from any one). try to find out things you dont understand ( what i did was i searched `youtube videos` for those words which were new to me. then started my own way of searching to expand my understanding about the concepts described here). 
+it is also very important in the early days to make a short note of first 10 videos. so you can refer back to it , when you need a quick refresher.
+
+This section is all about getting your base foundation right for dhamma cultivation.
 
 <b>10-20 videos</b>
 
-this section will talk about the depth of the journey, and basic knowledge you require to understand what are we trying to do here. if you hear new words while listening to this section, those are the meanings you require to realize(prathyaksha) this dhamma. so learn them well. listen to any dhamma videos ,which will show you different views of the same word ( explained differently). think about if that is just a single word, how did the meanings differ. if there are different meanings, did that meaning ever was a part of the sound you hear. is it only  a constructed mental model about what was felt. explore your mind within.
+this section will talk about the depth of the journey, and basic knowledge you require to understand what are we trying to do here. if you hear `new words` while listening to this section, those are the meanings you need to understand so dhamma can be realized (prathyaksha). so learn them well. do your own search about these new words that you are learning. listen to any dhamma videos ,which will show you different views of the same word ( explained differently). think about if that is just a single word, how did the meanings differ. if there are different meanings, did that `meaning` ever was a part of the sound you hear. then it must be only  a constructed mental model about what was felt. explore your mind within. discuss with dhamma friends about these problems.
 
 <b>from 20 onwards</b>
 
@@ -55,16 +58,16 @@ so far, you have been looking at different viewpoints from wide verity of Theros
 investigating the `Core dhamma principles` in practical day to day life. finding the edge problems and clearing them is what this section do. 
 
  මේ හරියේ අර්ථ ගත වීම් නොතේරන ස්වභාවයක් පවතිනවා නම් තව හොඳට සුතමය වශයෙන් මේ ධර්මය පිරිසිදු විය යුතුයි. එසේ වුවහොත් තේරුන ස්වභාවයක් පවතින මට්ටමට නැවත ගොස් එතැන සිට අසාගෙන එන්න. 
-#### <b><u> where are the discussion videos </u> </b> 
+#### <b><u> where are the discussion audio/videos </u> </b> 
 
 >listen to these first
 
-- [Introductions ~to be added~]()
+- [Introductions ||yet to be added||]()
 
 
 -[ Main dhamma Collection ](https://drive.google.com/drive/folders/1M5CGADd0YzWWgLmtBDXdMsiBo07dn8oX?usp=sharing)
 
--[ Marga sakachcha ](https://drive.google.com/drive/folders/1WwPO250hN6CKBo9uYQ3vRNDbn2kxR0Ma?usp=sharing)
+-[ Marga sakachcha section](https://drive.google.com/drive/folders/1WwPO250hN6CKBo9uYQ3vRNDbn2kxR0Ma?usp=sharing)
 
 
 #### <b><u> Order of things </u> </b> 
