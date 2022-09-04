@@ -1200,3 +1200,5 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [ත්‍රිජ කාය තේරුම් ගමු චේතෝ විමුක්තිය "සමථ" සහ ප්‍රඥා විමුක්තිය "විපස්සනා"](https://www.youtube.com/watch?v=Wea2ljhfJM0)
 
 - [9. පඨමධ්‍යානය​ - සජීවී ධම්ම දේශණාව - 25/09/2021](https://www.youtube.com/watch?v=KE2RkH41SZI&t=0s) 
+- [චේතෝ විමුක්තිය...](https://www.youtube.com/watch?v=nEeIzOgJh6g)
+- [නුතන ආළවක - සම්මා දිට්ඨි මාර්ගයට...](https://www.youtube.com/watch?v=5rFD1NT64Og)
