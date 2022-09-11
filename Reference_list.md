@@ -1202,3 +1202,35 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [9. පඨමධ්‍යානය​ - සජීවී ධම්ම දේශණාව - 25/09/2021](https://www.youtube.com/watch?v=KE2RkH41SZI&t=0s) 
 - [චේතෝ විමුක්තිය...](https://www.youtube.com/watch?v=nEeIzOgJh6g)
 - [නුතන ආළවක - සම්මා දිට්ඨි මාර්ගයට...](https://www.youtube.com/watch?v=5rFD1NT64Og)
+
+
+
+`84. ලසන්ත මහත්තයා සමග සාකච්ඡාව`
+> very important Marga-sakachchaa discussions
+
+- [62. මමත්වය හඳුනාගැනීම](https://drive.google.com/file/d/1EMbR0ihsvymqzpyGg2xRxcuvgdKn9-ys/view)
+
+- [63. මමත්වය තවදුරටත්](https://drive.google.com/file/d/1EPenQ9zuogc9RORxeeanbM2CaOgPwgrq/view)
+
+- [64. කිරීමට හෝ නොකිරීමට දෙයක් ලෙස හමුවීම](https://drive.google.com/file/d/1ERc5j6WLRB1ynJkvHTYi3Lh0jnLB8Eeg/view)
+
+- [65. හමුවීම සහ හමු නොවීම යන දෙකම හමුවීම](https://drive.google.com/file/d/1EXRtInCFKauGsm3ADGBBbRA0d7_dMxhu/view)
+
+>references
+
+- [ථේර ගාතා - සාරිපුත්ත මහා රහතන් වහන්සේ](https://www.youtube.com/watch?v=m2OyXBvVaWM)
+
+- [මේඝිය සූත්‍රය (2022.08.07)](https://www.youtube.com/watch?v=G-4cPV5dbpo) 
+
+- [දහම තුලින් සක්කාය තහවරු වීම](https://www.youtube.com/watch?v=lD5b38M7-ic)
+
+- [නුවණින් දැකිය යුතු අනිත්‍ය](https://www.youtube.com/watch?v=vswXp3-ht_k)
+
+- [අවබෝධයේ මුලාව](https://www.youtube.com/watch?v=6a9ILORBoAw)
+
+- [නිවන නොසොයා සසර සොයන්න](https://www.youtube.com/watch?v=aPu3Dov5t1U)
+
+
+
+
+`85. chathurarya sathya , samma dittiya nyanaya thulin`
