@@ -1191,7 +1191,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 > ලසන්ත මහත්තයා සහ කසුන් පැවැත්වූ අනර්ඝ සාකච්ඡාව 
 > marga sakachcha session 61.
 > 
-> [61. kasun & Lasnath Mahathmaya Discussion](https://drive.google.com/file/d/1AiSKHag-VZ7pJ8q4indlPwnVpS6Mwbf9/view)
+> [61. kasun & Lasantha Mahathmaya Discussion](https://drive.google.com/file/d/1AiSKHag-VZ7pJ8q4indlPwnVpS6Mwbf9/view)
 
 `83. භාවනාවේ වැදගත්කම සොයායෑම(2022-09-04 09-27 GMT-12)`
 
@@ -1230,7 +1230,51 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 - [නිවන නොසොයා සසර සොයන්න](https://www.youtube.com/watch?v=aPu3Dov5t1U)
 
+`85. හිතන බව නිවැරැදි ද (2022-09-12 21-07 GMT-12).mp3`
+
+- [එයත් ස්පර්ශය ප්‍රත්‍ය කරගෙනයි](https://www.youtube.com/watch?v=lhpNMV78noc)
+
+- [මනසිකාර සම්භවා සබ්බේ ධම්මා](https://www.youtube.com/watch?v=Ig5VTpvMEo4)
+- [තථාගතයන් වහන්සේ පටිච්ච සමුප්පාද දර්ම න්‍යාය මෙනෙහි කල තුන් ආකාරය](https://www.youtube.com/watch?v=OJzAD35mYic)
+- [නාම රූපය නිසා විඥානය - විඥාණය නිසා නාම රූපය](https://www.youtube.com/watch?v=yZfBrxEraBg)
+- [සැබෑ නිවීම - සක්කාය නිරෝධය](https://www.youtube.com/watch?v=6qJLWLdDxJs)
+- [ප්‍රඥාව මගේ වීම](https://www.youtube.com/watch?v=F0hj_QrzVZU)
+- [පැනවීම... - උපේක්ෂාව ... - ඇති කල්හි ......](https://www.youtube.com/watch?v=rq2vxa4KvZA)
+- [අන්ත ඉක්මවීම 5](https://www.youtube.com/watch?v=3AIpBhL9LPY)
 
 
 
-`85. chathurarya sathya , samma dittiya nyanaya thulin`
+`86. චතුරාර්ය සත්‍යය ප්‍රඥා ඇසෙන් (2022-09-11 09-02 GMT-12)`
+
+- [හොඳම දෘෂ්ටියෙන් එතෙර වීමට යොමුවීම](https://www.youtube.com/watch?v=tmfyOxUN17A)
+
+- [ධර්මය බලන කෝණ](https://www.youtube.com/watch?v=bjwF330PO_k)
+
+- [නිවන් මග උපදවාගැනීමට රූපය ප්‍රයෝගිකව විග්‍රහ කිරීම](https://www.youtube.com/watch?v=v_tGY01pOIM)
+
+- [තයෝධම්ම සුත්‍රය - සසර ගොඩනැගෙන ආකාරය සහ නිවීමට මග](https://www.youtube.com/watch?v=zBfUgTULywc)
+
+- [ථේර ගාතා - සාරිපුත්ත මහා රහතන් වහන්සේ](https://www.youtube.com/watch?v=m2OyXBvVaWM)
+- [ථේර ගාතා - මහා කස්සප මහ රහතන් වහන්සේ](https://www.youtube.com/watch?v=1F_16f3yehY)
+
+- [යෝනිසෝ මනසිකාරය](https://www.youtube.com/watch?v=brtvpHY4JHk) 
+
+- [නුවණින් දැකිය යුතු අනිත්‍ය](https://www.youtube.com/watch?v=vswXp3-ht_k)
+- [තර්කය සහ විචක්ෂණය](https://www.youtube.com/watch?v=EifbHxAcgoY)
+- [දැනුම අභිබවාගිය අභිඤ්ඤා ඤාණය ||Buddothpado Aryanwahanse](https://www.youtube.com/watch?v=SHpzID2Gch8)
+- [ආර්යන් වහන්සේලා කාලක් ක්‍රියා කරන අයුරු 01 || Buddothpado Aryanwahanse || methmal arana](https://www.youtube.com/watch?v=qsIPcNonotM)
+- [රහතන්වහන්සේලා කාලක් ක්‍රියා කරන අයුරු 02 || Buddithpado Aryanwahanse || methmal arana](https://www.youtube.com/watch?v=HtamMvoZx84)
+  
+  > if you still has doubts about existence of me listen to this playlist
+
+  - [මට මම නැතිවන හැටි 01 |බුදුන් වදාල අනාත්ම ධර්මය හේතුපල දහමයි |Buddothpado Aryanwahanse |methmal arana](https://www.youtube.com/watch?v=nCTB012v0nc)
+  - [මට මම නැතිවෙන හැටි 02 |ඔතනත් නැත්නම් මෙතනත්නෑ|Buddothpado Aryanwahanse |methmal arana](https://www.youtube.com/watch?v=hNaSb0EEaHE)
+  - [මට මම නැතිවන හැටි 03 |නිහඩව නිවන්මග යන භික්ෂුණින් | Buddothpado Aryanwahanse |methmal arana](https://www.youtube.com/watch?v=42VMxGpP7WE)
+  - [මට මම නැතිවෙන හැටි 04 | ප්‍රායෝගික අත්දැකීම් කිසිම පොතකනෑ |Buddothpado Aryanwahanse |metmal arana](https://www.youtube.com/watch?v=Fuvo8CyWYCQ)
+  - [මට මම නැතිවෙන හැටි 05 |Buddothpado Aryanwahanse |methmal arana](https://www.youtube.com/watch?v=VFweVcVi86E)
+  - [මට මම නැතිවෙන හැටි 06 |නිවන්මග ප්‍රායෝගික අත්දැකීම් පොතකනෑ |Buddothpado Aryanwahansa |methmal arana](https://www.youtube.com/watch?v=VzZldc0x6Qw)
+  - [මට මම නැතිවෙන හැටි 07 |නිවන්මග ප්‍රායෝගික අත්දැකීම් පොතකනෑ| Buddothpado Aryanwahanse |methmal arana](https://www.youtube.com/watch?v=2zsAQrRR2wM)
+  - [මට මම නැතිවෙන හැටි 08 | අරහත්වය කරායන අත්දැකීම් දුර්ලභයි |Buddothpado Aryanwahanse |methmal arana](https://www.youtube.com/watch?v=QQ9qbHM58vg)
+  - [මට මම නැතිවෙන හැටි 09 |මේ මොහොතෙම අත්දකින නිවන්සුව | සත්‍ය ලොවටම හෙලිකරමු|Buddothpado Aryanwahanse](https://www.youtube.com/watch?v=g6q2Wf7dSI0)
+  - [මට මම නැතිවෙන හැටි 10 |පේනදේට එහාගිය දැක්මක් ධම්ම චක්කුසය | Buddothpado Aryanwahanse |methmal arana](https://www.youtube.com/watch?v=FMfZGvpRFL4)
+   > Very important playlist, by the time i write there was about 20. there could be more by the time you listen to it. this play is very much recommended.
