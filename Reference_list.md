@@ -1277,4 +1277,4 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
   - [මට මම නැතිවෙන හැටි 08 | අරහත්වය කරායන අත්දැකීම් දුර්ලභයි |Buddothpado Aryanwahanse |methmal arana](https://www.youtube.com/watch?v=QQ9qbHM58vg)
   - [මට මම නැතිවෙන හැටි 09 |මේ මොහොතෙම අත්දකින නිවන්සුව | සත්‍ය ලොවටම හෙලිකරමු|Buddothpado Aryanwahanse](https://www.youtube.com/watch?v=g6q2Wf7dSI0)
   - [මට මම නැතිවෙන හැටි 10 |පේනදේට එහාගිය දැක්මක් ධම්ම චක්කුසය | Buddothpado Aryanwahanse |methmal arana](https://www.youtube.com/watch?v=FMfZGvpRFL4)
-   > Very important playlist, by the time i write there was about 20. there could be more by the time you listen to it. this play is very much recommended.
+   > Very important playlist, by the time i write this, there was about 20 recordings. there could be more by the time you listen to it. this play is very much recommend.
