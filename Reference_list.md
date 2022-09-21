@@ -62,7 +62,8 @@ investigating the `Core dhamma principles` in practical day to day life. finding
 
 >listen to these first
 
-- [Introductions ||yet to be added||]()
+- [001. introduction - සතුට සොයා  යෑම](https://drive.google.com/file/d/1JhzHMcLrbdkzCIFT0tvKlBGVG1zL8zdn/view?usp=sharing)
+- [002. introduction - වීර්ය](https://drive.google.com/file/d/1JoYA5SDJo3RdX2sKT7NsPLyqpGlrcico/view?usp=sharing)
 
 
 -[ Main dhamma Collection ](https://drive.google.com/drive/folders/1M5CGADd0YzWWgLmtBDXdMsiBo07dn8oX?usp=sharing)
