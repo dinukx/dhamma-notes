@@ -1279,3 +1279,28 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
   - [මට මම නැතිවෙන හැටි 09 |මේ මොහොතෙම අත්දකින නිවන්සුව | සත්‍ය ලොවටම හෙලිකරමු|Buddothpado Aryanwahanse](https://www.youtube.com/watch?v=g6q2Wf7dSI0)
   - [මට මම නැතිවෙන හැටි 10 |පේනදේට එහාගිය දැක්මක් ධම්ම චක්කුසය | Buddothpado Aryanwahanse |methmal arana](https://www.youtube.com/watch?v=FMfZGvpRFL4)
    > Very important playlist, by the time i write this, there was about 20 recordings. there could be more by the time you listen to it. this play is very much recommend.
+
+
+
+`87. මමත්ව විශ්ලේෂණය (2022-09-19 21-17 GMT-12)`
+
+- [පොහෝදිනයේ නිවන්දකින්න පුලුවන් දුර්ලභ විශ්මිත දේශනාව මාර්ගඵලයක් ලබාගන්න Gothatuwe Rewatha Himi Bana](https://www.youtube.com/watch?v=AWFF_hLs6RA)
+- [උපමාවෙන් නිවන | short talks | Gothatuwe Rewatha Himi](https://www.youtube.com/watch?v=3sKivaYkBH0)
+- [නිවන් දැකුමට මේ බණ පද ටික අහන්න | ආශ්වාදය විනිවිද දකින්න | අතිපූජ්‍ය බණ්ඩාරවෙල වංගීස ස්වාමින් වහන්සේ](https://www.youtube.com/watch?v=-KXtemd1qsY)
+- [දහම තුලින් තමා හදුනාගනිමු | Ven Bandarawela Wangeesa Thero](https://www.youtube.com/watch?v=ZE9dk-RbMjU)
+- [සසර තනන වඩුවා | දෙයක් "මම" හෝ "මගේ" වෙන්නේ කොහොමද? | අතිපූජ්‍ය බණ්ඩාරවෙල වංගීස ස්වාමින් වහන්සේ](https://www.youtube.com/watch?v=ASvvrjuIngw)
+- [මම ගොඩනැගෙන ආකාරය](https://www.youtube.com/watch?v=7UEbmiMoq5o)
+
+- [මැරුණේ කවුද? මැරෙන්නේ කවුද? චූල සුඤ්ඤත සූත්‍ර විග්‍රහය සැකෙවින්](https://www.youtube.com/watch?v=u1CKSJOu0sc)
+
+- [මමත්වයේ මුලාව](https://www.youtube.com/watch?v=JSmMt9gUDGE)
+- [බුද්ධ වචනයට අනුව පටිච්චසමුප්පාදය විමසන්නේ කෙසේද?](https://www.youtube.com/watch?v=IPR8Ex4p-94)
+
+`88. ධර්මය අතාරින්නෙ කෙසේද (2022-09-25 10-18 GMT-13)`
+
+- [SADAHAM SAWANA ||මායාවෙන් වැසුනු ලෝකය ප්‍රඥා ඇසින් බලන්න || Ven Koswatte Ariyawimala Himi](https://www.youtube.com/watch?v=6q9_teJbBTM)
+- [තයෝ ධම්ම සූත්‍රය - කොස්වත්තේ අරියවිමල ස්වාමීන් වහන්සේ](https://www.youtube.com/watch?v=BPyBmO7bN5I)
+- [අනිදස්සන විඤ්ඤාණය](https://www.youtube.com/watch?v=ACSP6ZkxiRc)
+
+- [විඤ්ඤාණය පිහිටීම් (විඤ්ඤාණට්ඨිති සූත්‍රය)](https://www.youtube.com/watch?v=GrPpmwqxYjE)
+
