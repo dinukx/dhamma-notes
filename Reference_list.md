@@ -1302,6 +1302,8 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [තයෝ ධම්ම සූත්‍රය - කොස්වත්තේ අරියවිමල ස්වාමීන් වහන්සේ](https://www.youtube.com/watch?v=BPyBmO7bN5I)
 - [අනිදස්සන විඤ්ඤාණය](https://www.youtube.com/watch?v=ACSP6ZkxiRc)
 
-- [විඤ්ඤාණය පිහිටීම් (විඤ්ඤාණට්ඨිති සූත්‍රය)](https://www.youtube.com/watch?v=GrPpmwqxYjE)
-
 - [නිවනට අවශ්‍ය ප්‍රඥාව හටගන්නේ කෙසේද? ආළවක සුත්‍රය ඇසුරින් පූජ්‍ය අලව්වේ අනෝමදස්සී ස්වාමින් වහන්සේ](https://www.youtube.com/watch?v=TBHLFutS8uI)
+
+- [සත්‍යවාදීව ජිවිතයේ යථාර්තය සොයන්නකුගේ ජීවිතය යෙදෙන විදිය - සංක්ෂිප්ත](https://www.youtube.com/watch?v=tBB_iwLzjVI)
+- [ඉලක්කය](https://www.youtube.com/watch?v=9gEu_1bm73s)
+- [සිදුවීම එතෙරවීම](https://www.youtube.com/watch?v=LqMpd4dXKGs)
