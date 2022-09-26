@@ -1304,3 +1304,4 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 - [විඤ්ඤාණය පිහිටීම් (විඤ්ඤාණට්ඨිති සූත්‍රය)](https://www.youtube.com/watch?v=GrPpmwqxYjE)
 
+- [නිවනට අවශ්‍ය ප්‍රඥාව හටගන්නේ කෙසේද? ආළවක සුත්‍රය ඇසුරින් පූජ්‍ය අලව්වේ අනෝමදස්සී ස්වාමින් වහන්සේ](https://www.youtube.com/watch?v=TBHLFutS8uI)
