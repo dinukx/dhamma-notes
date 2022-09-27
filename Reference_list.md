@@ -49,7 +49,8 @@ focus and listen to what these thero's are trying to explain. let those word pai
 
 <b>from 45 onwards</b>
 
-so far, you have been looking at different viewpoints from wide verity of Theros and how they have realized dhamma. from here onwards , we need to listen to `gihi-discussions` as well. some of these conversations are in `Marga Sakachcha` section. this section will help you to enhance your viewpoint count. every explanation in this section, is relative to point that conversation is trying to convey. 
+so far, you have been looking at different viewpoints from wide verity of Theros and how they have realized dhamma. from here onwards , we need to listen to `gihi-discussions` as well. some of these conversations are in `Marga Sakachcha` section. this section will help you to enhance your viewpoint count. every explanation in this section, is relative to point that conversation is trying to convey.
+>  `Marga Sakachcha` section is about sharing experiance between realised dhamma.  මාර්ග ගත වූ පසු මාර්ගය ගැන කරන සාකච්ඡා මෙම එකතුවේ අඩංගුයි. මෙහි අවශ්‍යතාවය මතු වෙන්නේ මාර්ගය සොයා ගත් පසුවයි.
 
 `උපමාව නෙමෙයි අර්ථය බලන්න `, `තමා දරාගෙන සිටින කෝණයේ වැරැද්ද හඳුනාගන්න`
 
