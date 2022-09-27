@@ -64,7 +64,7 @@ investigating the `Core dhamma principles` in practical day to day life. finding
 
 - [001. introduction - සතුට සොයා  යෑම](https://drive.google.com/file/d/1JhzHMcLrbdkzCIFT0tvKlBGVG1zL8zdn/view?usp=sharing)
 - [002. introduction - වීර්ය](https://drive.google.com/file/d/1JoYA5SDJo3RdX2sKT7NsPLyqpGlrcico/view?usp=sharing)
-
+- [003 introduction- ගවේෂණය කරන්නේ කෙසේද](https://drive.google.com/file/d/1KARVXRZ54TbVQtJ7jaYeR0y16oDxZeKj/view?usp=sharing)
 
 -[ Main dhamma Collection ](https://drive.google.com/drive/folders/1M5CGADd0YzWWgLmtBDXdMsiBo07dn8oX?usp=sharing)
 
@@ -72,6 +72,15 @@ investigating the `Core dhamma principles` in practical day to day life. finding
 
 
 #### <b><u> Order of things </u> </b> 
+
+`00. listen to introduction sections first *important*`
+
+
+> Then Start listening to 1-19 sessions in Main dhamma Collection
+> - After each session , do you own research about the content in them. if there are new words that you didnt know before find youtube sessions about them. listen to any thero/ dhamma programme about those topics. enhance your knowledge about them.
+> - it is natural to feel earlier sessions are content heavy. go through them.
+> - it is recommended to create a short note after each session, so you can refer back to those points when you need them in the future. this really helped me connect things together.
+
 
 ` 20. ධර්ම දානය ගැඹුරින් ( understanding dharma danaya) (2021-05-17 at 02:05 GMT-7)`
 
