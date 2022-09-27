@@ -32,7 +32,7 @@ it is also very important in the early days to make a short note of first 10 vid
 
 This section is all about getting your base foundation right for dhamma cultivation.
 
-<b>10-20 videos</b>
+<b>10-20 video/audios</b>
 
 this section will talk about the depth of the journey, and basic knowledge you require to understand what are we trying to do here. if you hear `new words` while listening to this section, those are the meanings you need to understand so dhamma can be realized (prathyaksha). so learn them well. do your own search about these new words that you are learning. listen to any dhamma videos ,which will show you different views of the same word ( explained differently). think about if that is just a single word, how did the meanings differ. if there are different meanings, did that `meaning` ever was a part of the sound you hear. then it must be only  a constructed mental model about what was felt. explore your mind within. discuss with dhamma friends about these problems.
 
