@@ -76,9 +76,9 @@ investigating the `Core dhamma principles` in practical day to day life. finding
 `00. listen to introduction sections first *important*`
 
 
-> Then Start listening to 1-19 sessions in Main dhamma Collection
+> Then Start listening to 1-19 sessions in `Main dhamma Collection`
 > - After each session , do you own research about the content in them. if there are new words that you didnt know before find youtube sessions about them. listen to any thero/ dhamma programme about those topics. enhance your knowledge about them.
-> - it is natural to feel earlier sessions are content heavy. go through them.
+> - it is natural to feel earlier sessions are content heavy. go through them. අත් නොහැර ඉදිරියට යන්න විර්ය කරන්න
 > - it is recommended to create a short note after each session, so you can refer back to those points when you need them in the future. this really helped me connect things together.
 
 
