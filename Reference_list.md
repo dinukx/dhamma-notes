@@ -78,8 +78,9 @@ investigating the `Core dhamma principles` in practical day to day life. finding
 
 > Then Start listening to 1-19 sessions in `Main dhamma Collection`
 > - After each session , do you own research about the content in them. if there are new words that you didnt know before find youtube sessions about them. listen to any thero/ dhamma programme about those topics. enhance your knowledge about them.
-> - it is natural to feel earlier sessions are content heavy. go through them. අත් නොහැර ඉදිරියට යන්න විර්ය කරන්න
+> - it is natural to feel earlier sessions are content heavy. go through them. අත් නොහැර ඉදිරියට යන්න විර්ය කරන්න.
 > - it is recommended to create a short note after each session, so you can refer back to those points when you need them in the future. this really helped me connect things together.
+> - after each 5 sessions,  ඔබට හමු වූ කල්‍යාණ මිත්‍රයා සමග ධර්ම  සාකච්ඡාවක යෙදෙන්න. ඔබ ඉන්නා කෝණය විමර්ශනය කරන්න. 
 
 
 ` 20. ධර්ම දානය ගැඹුරින් ( understanding dharma danaya) (2021-05-17 at 02:05 GMT-7)`
