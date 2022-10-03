@@ -1,7 +1,7 @@
  
 ### සියලු සංස්කාරයෝ නැසෙන සුලුය. නොපමාව කුසල් වඩන්න 
 (Focus on `kusal`, in other words `kusalathaawaya` (in english we call it `talent`)
-Identifying `what is this talent` is very important. (This is `not` what you think)
+Identifying `what is this talent` is very important. (This is `not` what you think) in very simple terms it is the talent to identify the issue in your own viewpoint. 
 
 #### <b><u> Why search dhamma </u></b> 
  මෙය කියවා ඉන්න
@@ -1318,3 +1318,31 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [සත්‍යවාදීව ජිවිතයේ යථාර්තය සොයන්නකුගේ ජීවිතය යෙදෙන විදිය - සංක්ෂිප්ත](https://www.youtube.com/watch?v=tBB_iwLzjVI)
 - [ඉලක්කය](https://www.youtube.com/watch?v=9gEu_1bm73s)
 - [සිදුවීම එතෙරවීම](https://www.youtube.com/watch?v=LqMpd4dXKGs)
+
+`89. ධර්ම විනයට ගැලපීම (2022-09-28 17-35 GMT-13)`
+
+- [A.S.Balasooriya: a Discussion on Kalama Sutta](https://www.youtube.com/watch?v=_JgERJg930I)
+- [Buddhism & Philosophy: The Kalama Sutta](https://www.youtube.com/watch?v=wR-w4ez1ZMw)
+- [Kalama Sutta](https://www.youtube.com/watch?v=4tiORM6EQT4)
+- [සච්ච විභංග සූත්‍ර විග්‍රහය | අතිපූජ්‍ය බණ්ඩාරවෙල වංගීස ස්වාමින් වහන්සේ](https://www.youtube.com/watch?v=kA5QVYZIdhs)
+- [ක්ෂණ මාත්‍රයක පැවතීම හා නිරුද්ධ වීම | අතිපූජ්‍ය බණ්ඩාරවෙල වංගීස ස්වාමින් වහන්සේ](https://www.youtube.com/watch?v=2TDngtj3cao)
+- [15. Tissa Metteiya Sutta (තිස්ස මෙත්තෙයය සූත්‍රය ඛු.නි)](https://www.youtube.com/watch?v=cma_Of-xJdY&t=11s)
+
+- [මජ්ඣෙ සූත්‍රය | Majje Suthra | A Rare Dhamma](https://www.youtube.com/watch?v=Ps0MiG55X3s)
+
+- [මූල පරියාය සූත්‍ර (Muulapariyaya sutta) 1/18 - අතිපූජ්‍ය උඩඊරියගම ධම්මජීව හිමි](https://www.youtube.com/watch?v=G1Q2VGJBv80)
+
+- [මූල පරියාය සූත්‍ර (Muulapariyaya sutta) - 2/18 අතිපූජ්‍ය උඩඊරියගම ධම්මජීව හිමි](https://www.youtube.com/watch?v=6JZIbhKjQ9A)
+
+`90. නිවන මොහොතින් මොහොතට අවබෝධ වීමක්ද_(2022-10-02 09-19 GMT-13)`
+
+- [Ven Mankadawala Sudassana Thero | 2018-10-04 හටගත් සියල්ල නිරුද්ධවන බව දැකීම නිවණයි](https://www.youtube.com/watch?v=kMGtxBPvMxI)
+- [Ven Mankadawala Sudassana Thero | 2018-09-19 නිමිත්ත දුරු කිරීමට සිහිය පිහිටුවව්](https://www.youtube.com/watch?v=rysW2nOKsHY)
+
+- [සුකුම රූපය - sukuma rupaya - පූජ්‍ය මාන්කඩවල සුදස්සන හිමි](https://www.youtube.com/watch?v=KYsOjNDBUxQ)
+
+- [Ven Thalalle Chandakitti Thero- dasa sanya -girimananda sutta](https://www.youtube.com/watch?v=4SLBIRxpT0w)
+
+- [ගිරිමානන්ද සූත්‍රය - Girimananda Suthraya | Most Ven. Na Uyane Ariyadhamma Maha Thero](https://www.youtube.com/watch?v=KRVN6qKnDd8)
+- [නිවන් මගට පැමිණීමේ දොරටු පහ Most Ven Nauyane Ariyadhamma Maha Thero](https://www.youtube.com/watch?v=LBu_Nf1glxA)
+- [පාලි නැතිව නිවන් මග සරලව 5 ||Buddothpado Aryanwahanse |methmal arana](https://www.youtube.com/watch?v=GHPZf9xfXTQ)
