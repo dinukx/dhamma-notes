@@ -1348,3 +1348,8 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [පාලි නැතිව නිවන් මග සරලව 5 ||Buddothpado Aryanwahanse |methmal arana](https://www.youtube.com/watch?v=GHPZf9xfXTQ)
 - [සසර සහ නිවන | පූජ්‍ය ගොතටුවේ රේවත හිමි](https://www.youtube.com/watch?v=WW7J3kYHJf4)
 - ["මම" ගෙවෙන තැන - අතිපූජ්‍ය උඩඊරියගම ධම්මජීව හිමි](https://www.youtube.com/watch?v=r_t23j1Vw2U)
+  
+
+> very important session listen carefully.
+
+- [නිවන් දකින මග](https://www.youtube.com/watch?v=l5OYcqcxUvo)  
