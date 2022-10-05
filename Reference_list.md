@@ -1350,6 +1350,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - ["මම" ගෙවෙන තැන - අතිපූජ්‍ය උඩඊරියගම ධම්මජීව හිමි](https://www.youtube.com/watch?v=r_t23j1Vw2U)
   
 
-> very important session listen carefully.
+> very important sessions listen carefully.
 
-- [නිවන් දකින මග](https://www.youtube.com/watch?v=l5OYcqcxUvo)  
+- [නිවන් දකින මග](https://www.youtube.com/watch?v=l5OYcqcxUvo)
+- [අන්ත වලින් මිදෙන මග පූජ්‍ය දික්කුඹුරේ සුභූති හිමි ven dikkumbure subuthi thero](https://www.youtube.com/watch?v=dXdjJo2CWYI&t=22s)  
