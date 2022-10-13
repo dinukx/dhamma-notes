@@ -25,6 +25,13 @@ Identifying `what is this talent` is very important. (This is `not` what you thi
 පෘථග්ජන පුද්ගලයෙක් විසින් ( මමත්වය තුළ ) සත්‍ය ගවේශනය කරනවිටදී විවිධ වූ කෝණයන් තුළින් දර්ශනය, විවිධ ස්වරූපයන්ගෙන් විශ්ලේෂණය වන බව දැනුනු විට ඒ එකදු කෝණයකට වත් නොඇලී, සත්‍ය ගවේෂණය සිදු කරන ආකාරය එකතුවක් ලෙස මෙලෙස තියා යමි. අද කාලයේදී ධර්ම ගවේෂණය youtube හරහා සිදුවෙන්නක් නිසා එම ධර්මස්කන්ධය navigate කරන්නේ කෙලෙසදැයි දැනගැනීම උදෙසා මෙම එකතුව ගයිඩන්ස් එකක් වශයෙන් තබා යන බවට මූලිකව අවබෝධ කල යුතුයි. 
 #### <b><u> How to navigate, this collection </u> </b> 
 
+> First things first. READ THIS Document CAREFULLY. 
+
+
+> Your First step is to listen to introduction videos. 
+
+>Discussions can be found at Youtube Channel : 
+[Marga Sakachcha (මාර්ග සාකච්ඡා)](https://www.youtube.com/channel/UCqBwHbufahAbn7xElX7sm5A/videos)
 
 <b>first 10 videos</b>
 
