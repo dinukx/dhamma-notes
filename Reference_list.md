@@ -1,7 +1,14 @@
  
-### සියලු සංස්කාරයෝ නැසෙන සුලුය. නොපමාව කුසල් වඩන්න 
-(Focus on `kusal`, in other words `kusalathaawaya` (in english we call it `talent`)
-Identifying `what is this talent` is very important. (This is `not` what you think) in very simple terms it is the talent to identify the issue in your own viewpoint. 
+### සියලු සංස්කාරයෝ නැසෙන සුලුය. නොපමාව කුසල් වඩන්න.
+ 
+( Focus on `kusal`, in other words `kusalathaawaya` (in english we call it `talent`)
+Identifying `what is this talent` is very important. (This is `not` what you think) in very simple terms it is the talent to identify the issue in your own viewpoint. )
+
+
+### <u>කුමක්ද මේ එකතුව</u>
+
+ අද භාෂාවෙන් කිව්වොත් සරලවම, බුදුරජාණන් වහන්සේගේ ශ්‍රී සද්ධර්මය අද කාලයේ සොයාගෙන යන්නේ කොහොමද? කියන එකයි. දැන් මෙහෙම බලන්න නොදන්න දෙයක් කවදාවත්සොයන්න බැරි හන්දා ,නොදන්න තැන සිට කොහොමද මේක හොයාගෙන යන්නේ කියන එක ගැන කරපු විමර්ශනයේදී පසු කරපු තැන් . ඒ තැන් වලදී හම්බෙච්ච කෝණ, එවුව කඩා ගත්ත විදිය. ටිකක් අහලා බලන්න ඔයාලා ඒ තැන් පසු කරලා ද කියලා.  
+
 
 #### <b><u> Why search dhamma </u></b> 
  මෙය කියවා ඉන්න
@@ -1354,3 +1361,5 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [Marga-sakachcha- 73. ඇත සහ නැත නොයෙදීම](https://drive.google.com/file/d/1NyEyc_yRNbXBWfkzzyE97cMrVyXWfvuA/view?usp=sharing)
 - [නිවන් දකින මග](https://www.youtube.com/watch?v=l5OYcqcxUvo)
 - [අන්ත වලින් මිදෙන මග පූජ්‍ය දික්කුඹුරේ සුභූති හිමි ven dikkumbure subuthi thero](https://www.youtube.com/watch?v=dXdjJo2CWYI&t=22s)  
+
+#mohothaka yedima.#
