@@ -1393,11 +1393,8 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [උපාදානස්කන්දය | සක්කාය නිරෝදය | Sakkaya Nirodaya](https://www.youtube.com/watch?v=Byxyg3tpejE)
 - [නිරුද්ධ වෙන්නේ මේ ආකාරයටයි |Ven Kotmale Kumara Kassapa Thero |පූජ්‍ය කොත්මලේ කුමාර කස්සපහිමි](https://www.youtube.com/watch?v=uT_mq5P0T0I)
 
->මෙය කියවන ඔබ දිහා ටිකක් බලන්න. හරියට බලන්න ඇවිත් බලන්න. ඒහිපස්සිකෝ . එතන මම හිටියෙම නැති බව සැක හැර දැනගන්න.
+>මෙය කියවන ඔබ දිහා ටිකක් බලන්න. හරියට බලන්න. ඇවිත් බලන්න. ඒහිපස්සිකෝ...!!! එතන මම හිටියෙම නැති බව සැක හැර දැනගන්න. මොහොතක යෙදීමක් තුළ පැවතීමක් ලෙස හට ගැනීමේ හැකියාවක්ම නොතිබුණු බව දැනගන්න කෙනා දැකගන්න.
 
 
-#mohothaka yedima.#
-#mada notharaweema#
-search for:
-majjiya suthraya
-anidassana wynanaya.
+
+> බුදුන් දැකීම නිවන් දැකීමමයි.
