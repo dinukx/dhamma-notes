@@ -1371,7 +1371,33 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [නිවන් දකින මග](https://www.youtube.com/watch?v=l5OYcqcxUvo)
 - [අන්ත වලින් මිදෙන මග පූජ්‍ය දික්කුඹුරේ සුභූති හිමි ven dikkumbure subuthi thero](https://www.youtube.com/watch?v=dXdjJo2CWYI&t=22s)  
 
+`91. ලෞකික සම්මා දිට්ඨිය තුළින් ලෝකෝත්තර සම්මා දිට්ඨියට`
+
+- [විශ්වය නිර්මාණය වන්නේ කෙසේද ?](https://www.youtube.com/watch?v=AmtYEcJiyh0)
+- [(ඔබ මවාගත්ත විශ්වය ) බංඩාරවෙල වංගීස හිමි bandarawela wangeesa himi](https://www.youtube.com/watch?v=JDBNTwbbah8)
+- [සිත හා විශ්වය](https://www.youtube.com/watch?v=TNll_AA0wtY)
+- [ගවේෂණය , පරියේෂණය](https://www.youtube.com/watch?v=8bgQTJ3j_vo)
+- [දහම තුලින් තමා හදුනාගනිමු | Ven Bandarawela Wangeesa Thero](https://www.youtube.com/watch?v=ZE9dk-RbMjU)
+  
+- [නිවන් සැපදෙන ලෝකෝත්තර දිට්ඨිය | Samma dhittiya | සම්මා @Ven. Alawwe Anomadassi Thero](https://www.youtube.com/watch?v=fhci5HssQys)
+- [සේඛයාගේ දර්ශනය](https://www.youtube.com/watch?v=tEmAeAcyCh4)
+- [අපට රහතන් වහන්සේ නමක්](https://www.youtube.com/watch?v=Pk1noLg3EUE)
+- [ලෝකෝත්තර සම්මා දිට්ඨිය විග්‍රහය](https://www.youtube.com/watch?v=R7pjCUTMNME)
+- [11 වන මස, 11 වන දින උදේ 11යි 11ට සිදු උන විශේෂ සිදුවීම || Siwhela TV](https://www.youtube.com/watch?v=ugHxmfgom1Y&t=27s)
+- [එතෙරවීම නිවන් මගට දහම් බිදක් | සක්කාය නිරෝදය | Sakkaya Nirodaya](https://www.youtube.com/watch?v=cGHjfUwNbQ0)
+> fb group in reference.
+- [ බුදුන් වදාළ දහම discussion group link ](https://www.facebook.com/groups/1156979691415204/posts/1491538301292673/)
+
+`92. හේතුඵල වශයෙන් දැකීම (2022-10-10 21-24 GMT-13)`
+
+- [උපාදානස්කන්දය | සක්කාය නිරෝදය | Sakkaya Nirodaya](https://www.youtube.com/watch?v=Byxyg3tpejE)
+- [නිරුද්ධ වෙන්නේ මේ ආකාරයටයි |Ven Kotmale Kumara Kassapa Thero |පූජ්‍ය කොත්මලේ කුමාර කස්සපහිමි](https://www.youtube.com/watch?v=uT_mq5P0T0I)
+
+>මෙය කියවන ඔබ දිහා ටිකක් බලන්න. හරියට බලන්න ඇවිත් බලන්න. ඒහිපස්සිකෝ . එතන මම හිටියෙම නැති බව සැක හැර දැනගන්න.
+
+
 #mohothaka yedima.#
 #mada notharaweema#
+search for:
 majjiya suthraya
 anidassana wynanaya.
