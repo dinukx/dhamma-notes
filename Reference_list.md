@@ -35,35 +35,37 @@ Identifying `what is this talent` is very important. (This is `not` what you thi
 
 <b>first 10 videos</b>
 
-this section lay the foundation on how to prep for searching dhamma. when someone wants to make a house, first thing he has to do is to understand how a house become to exist. in order to have a house, a solid foundation is required. So understanding the components `the house` is made of is where the journey should start. similarly 
+this section lay the foundation on how to prep for searching dhamma. for example, when someone wants to make a house, first thing is to understand what is a house and how a house become to exist ( what are the tools/knowledge/processors required to make the house a real thing). in order to have a stable house, a solid foundation is required. So understanding the inner structural working of  `the house` is crucial. That is where the journey should start. 
+
+similarly 
 this section teaches you 3 things
-- what is required to understand dhamma
-- repeatability, on a shedule but effort of creating dedicated time for learn dhamma in a consistant cycle
-- finding viewpoints that can challenge your current understanding, wisdom can be only grown by understanding multiple viewpoints . looking at it in different ways , but never holding on to one.
+- What is required to understand dhamma
+- Methodology. ( Repeatability, on a shedule but effort of creating dedicated time for learn dhamma in a consistant cycle )
+- finding different viewpoints that can clearly challenge your current understanding, Wisdom can be only grown by understanding multiple viewpoints . looking at it in different ways , but never holding on to one.
   
-while you are listening to this section, you can start listening to any references you prefer,( from any one). try to find out things you dont understand ( what i did was i searched `youtube videos` for those words which were new to me. then started my own way of searching to expand my understanding about the concepts described here). 
+While you are listening to this section, you can start listening to any references you prefer,( from any one). Try to find out things you dont understand ( what i did was i searched `youtube videos` for those words /topics which were new to me. then started my own way of searching to expand my understanding about the concepts described here). 
 it is also very important in the early days to make a short note of first 10 videos. so you can refer back to it , when you need a quick refresher.
 
 This section is all about getting your base foundation right for dhamma cultivation.
 
-<b>10-20 video/audios</b>
+<b>10-20 videos</b>
 
-this section will talk about the depth of the journey, and basic knowledge you require to understand what are we trying to do here. if you hear `new words` while listening to this section, those are the meanings you need to understand so dhamma can be realized (prathyaksha). so learn them well. do your own search about these new words that you are learning. listen to any dhamma videos ,which will show you different views of the same word ( explained differently). think about if that is just a single word, how did the meanings differ. if there are different meanings, did that `meaning` ever was a part of the sound you hear. then it must be only  a constructed mental model about what was felt. explore your mind within. discuss with dhamma friends about these problems.
+This section will talk about the depth of the journey, and basic knowledge you require to understand what are we trying to do here. if you hear `new words` while listening to this section, those are the meanings you need to understand so dhamma can be realized (prathyaksha). so learn them well. Discover different meanings for the same words, write them down. Do your own research about these new words that you are learning. listen to any dhamma videos , which will show you different views of the same word ( explained differently). think about if that is just a single word, how did the meanings differ. if there are different meanings, did that `meaning` ever was a part of the sound you hear. then it must be only  a constructed mental model about what was felt. Explore your mind within. Discuss with dhamma friends about these problems. find a group of like minded friends to go through these together. it will help looking at same content in different angles.(like we did). discuss those viewpoints. 
 
 <b>from 20 onwards</b>
 
-you need to start looking at different viewpoints of the same principle, specially from people/theros who passed this junction (viewpoint) or who is in search.
-always when you start listening to these videos , try to see why this person/thero is telling this way, 
+From here onwards you will need to start looking at different viewpoints of the same principle, specially from people/theros who passed this junction (viewpoint) or who is in search. 
+When you start listening to these videos , Always try to see why this person/thero is telling this way, 
 observe what he is trying to convey. 
 your goal is to understand why he is saying this, what does he know more than me,
 how to see what he see's from his eyes. 
 you should not compare your viewpoint or his. this is a path of enlightenment, its not a about holding on to a
 single view point (any), its always about `letting go of all the viewpoints`. so stop trying to find the `right` one.
-focus and listen to what these thero's are trying to explain. let those word paint a picture on your mind. don't pollute it by thinking about what it is. the purest form is the easiest to realization. 
+focus and listen to what these thero's are trying to explain. let those words you hear paint a picture on your mind. don't pollute it by thinking about what it is. the purest form is the easiest to realization. 
 
 <b>from 45 onwards</b>
 
-so far, you have been looking at different viewpoints from wide verity of Theros and how they have realized dhamma. from here onwards , we need to listen to `gihi-discussions` as well. some of these conversations are in `Marga Sakachcha` section. this section will help you to enhance your viewpoint count. every explanation in this section, is relative to point that conversation is trying to convey.
+so far, you have been looking at different viewpoints from wide verity of Theros and how they have realized dhamma. Addtional to that, from here onwards , we need to listen to `gihi-discussions` as well. some of these conversations are in `Marga Sakachcha` section. this section will help you to enhance your viewpoint count. every explanation in this section, is relative to point that conversation is trying to convey.
 >  `Marga Sakachcha` section is about sharing experiance between realised dhamma.  මාර්ග ගත වූ පසු මාර්ගය ගැන කරන සාකච්ඡා මෙම එකතුවේ අඩංගුයි. මෙහි අවශ්‍යතාවය මතු වෙන්නේ මාර්ගය සොයා ගත් පසුවයි.
 
 `උපමාව නෙමෙයි අර්ථය බලන්න `, `තමා දරාගෙන සිටින කෝණයේ වැරැද්ද හඳුනාගන්න`
@@ -77,13 +79,13 @@ investigating the `Core dhamma principles` in practical day to day life. finding
 
 >listen to these first
 
-- [001. introduction - සතුට සොයා  යෑම](https://drive.google.com/file/d/1JhzHMcLrbdkzCIFT0tvKlBGVG1zL8zdn/view?usp=sharing)
-- [002. introduction - වීර්ය](https://drive.google.com/file/d/1JoYA5SDJo3RdX2sKT7NsPLyqpGlrcico/view?usp=sharing)
-- [003 introduction- ගවේෂණය කරන්නේ කෙසේද](https://drive.google.com/file/d/1KARVXRZ54TbVQtJ7jaYeR0y16oDxZeKj/view?usp=sharing)
+- [001. introduction - සතුට සොයා  යෑම](https://www.youtube.com/watch?v=n2rwuqzUV84&list=PLXV8-pNZrgn9CUOUTZHSXQK7PUQJF9gD0&index=1&t=2s)
+- [002. introduction - වීර්ය](https://www.youtube.com/watch?v=CDZU0I73GlA&list=PLXV8-pNZrgn9CUOUTZHSXQK7PUQJF9gD0&index=2)
+- [003 introduction- ගවේෂණය කරන්නේ කෙසේද](https://www.youtube.com/watch?v=NdVrzXggLA8&list=PLXV8-pNZrgn9CUOUTZHSXQK7PUQJF9gD0&index=3)
 
--[ Main dhamma Collection ](https://drive.google.com/drive/folders/1M5CGADd0YzWWgLmtBDXdMsiBo07dn8oX?usp=sharing)
+-[ Main dhamma Collection ](https://www.youtube.com/playlist?list=PLXV8-pNZrgn9CUOUTZHSXQK7PUQJF9gD0)
 
--[ Marga sakachcha section](https://drive.google.com/drive/folders/1WwPO250hN6CKBo9uYQ3vRNDbn2kxR0Ma?usp=sharing)
+-[ Marga sakachcha section](https://www.youtube.com/playlist?list=PLXV8-pNZrgn-nFHL8U7GKYMqmKzU05Xxy)
 
 
 #### <b><u> Order of things </u> </b> 
@@ -93,7 +95,7 @@ investigating the `Core dhamma principles` in practical day to day life. finding
 
 > Then Start listening to 1-19 sessions in `Main dhamma Collection`
 > - After each session , do you own research about the content in them. if there are new words that you didnt know before find youtube sessions about them. listen to any thero/ dhamma programme about those topics. enhance your knowledge about them.
-> - it is natural to feel earlier sessions are content heavy. go through them. අත් නොහැර ඉදිරියට යන්න විර්ය කරන්න.
+> - it is natural to feel earlier sessions are content heavy. go through them. අත් නොහැර ඉදිරියට යන්න විර්ය කරන්න. ඒ සඳහා වීර්ය කරන්න.
 > - it is recommended to create a short note after each session, so you can refer back to those points when you need them in the future. this really helped me to connect things together.
 > - after each 5 sessions,  ඔබට හමු වූ කල්‍යාණ මිත්‍රයා සමග ධර්ම  සාකච්ඡාවක යෙදෙන්න. ඔබ ඉන්නා කෝණය විමර්ශනය කරන්න.
 > 
@@ -1269,6 +1271,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [ප්‍රඥාව මගේ වීම](https://www.youtube.com/watch?v=F0hj_QrzVZU)
 - [පැනවීම... - උපේක්ෂාව ... - ඇති කල්හි ......](https://www.youtube.com/watch?v=rq2vxa4KvZA)
 - [අන්ත ඉක්මවීම 5](https://www.youtube.com/watch?v=3AIpBhL9LPY)
+- [පැවැත්ම - අන්ත නොයෙදීම - නිරෝධය - ප්‍රත්‍යෙන් ඉපදීම](https://www.youtube.com/watch?v=u5-jWCewJRE&list=WL)
 
 
 
@@ -1391,10 +1394,22 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 `92. හේතුඵල වශයෙන් දැකීම (2022-10-10 21-24 GMT-13)`
 
 - [උපාදානස්කන්දය | සක්කාය නිරෝදය | Sakkaya Nirodaya](https://www.youtube.com/watch?v=Byxyg3tpejE)
+- [Ven Pitigala Gunarathana Thero | 2015-11-16 සසර ගමනට හේතු වන ආහාර වර්ග 4 සහ චතුරාර්ය සත්‍යය](https://www.youtube.com/watch?v=Oj2FQY6VzYM)
 - [නිරුද්ධ වෙන්නේ මේ ආකාරයටයි |Ven Kotmale Kumara Kassapa Thero |පූජ්‍ය කොත්මලේ කුමාර කස්සපහිමි](https://www.youtube.com/watch?v=uT_mq5P0T0I)
+- [රූපය අවබෝධය | රූපස්කන්ධය යනු | පංචස්කන්දය | බුදුබන සරලව | සත්‍ය සොයන්න | Sathya Soyanna | සත්‍ය සොයා](https://www.youtube.com/watch?v=O_zyDjUEVK8)
+- [ගෟතම බුද්ධ ශාසනයේ නැවත පිබිදිිම / Buddothpado Aryanwahanse/ methmal arana](https://www.youtube.com/watch?v=Hrq4xMPZ8ws)
+
+
+`93. මැද නොතැවරීම`
+
+ - [උදයවැය ඥානය ප්‍රයෝගිකව දකින ආකාරය - 1 කොටස](https://www.youtube.com/watch?v=n0i63a3fOR8)
+  
+`94. එතෙර වීම යනු කුමක්ද`
+
 
 >මෙය කියවන ඔබ දිහා ටිකක් බලන්න. හරියට බලන්න. ඇවිත් බලන්න. ඒහිපස්සිකෝ...!!! එතන මම හිටියෙම නැති බව සැක හැර දැනගන්න. මොහොතක යෙදීමක් තුළ පැවතීමක් ලෙස හට ගැනීමේ හැකියාවක්ම නොතිබුණු බව දැනගන්න කෙනා දැකගන්න.
 
 
 
 >තමා තුළින්, බුදුන් දැකීම නිවන් දැකීමමයි.
+
