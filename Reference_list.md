@@ -95,7 +95,7 @@ investigating the `Core dhamma principles` in practical day to day life. finding
 
 > Then Start listening to 1-19 sessions in `Main dhamma Collection`
 > - After each session , do you own research about the content in them. if there are new words that you didnt know before find youtube sessions about them. listen to any thero/ dhamma programme about those topics. enhance your knowledge about them.
-> - it is natural to feel earlier sessions are content heavy. go through them. අත් නොහැර ඉදිරියට යන්න විර්ය කරන්න. ඒ සඳහා වීර්ය කරන්න.
+> - it is natural to feel earlier sessions are content heavy. go through them. අත් නොහැර ඉදිරියට යන්න විර්ය කරන්න. යන්න යන්න ධර්මය අවබෝධ වීමේ ස්වභාවය තමා තුළින් ම දැක ගැනීමේ හැකියාව ලැබෙන නිසා ඒ සඳහා නොපසුබට උත්සාහය වැදගත්. වීර්ය කරන්න.
 > - it is recommended to create a short note after each session, so you can refer back to those points when you need them in the future. this really helped me to connect things together.
 > - after each 5 sessions,  ඔබට හමු වූ කල්‍යාණ මිත්‍රයා සමග ධර්ම  සාකච්ඡාවක යෙදෙන්න. ඔබ ඉන්නා කෝණය විමර්ශනය කරන්න.
 > 
@@ -1346,12 +1346,12 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [සච්ච විභංග සූත්‍ර විග්‍රහය | අතිපූජ්‍ය බණ්ඩාරවෙල වංගීස ස්වාමින් වහන්සේ](https://www.youtube.com/watch?v=kA5QVYZIdhs)
 - [ක්ෂණ මාත්‍රයක පැවතීම හා නිරුද්ධ වීම | අතිපූජ්‍ය බණ්ඩාරවෙල වංගීස ස්වාමින් වහන්සේ](https://www.youtube.com/watch?v=2TDngtj3cao)
 - [15. Tissa Metteiya Sutta (තිස්ස මෙත්තෙයය සූත්‍රය ඛු.නි)](https://www.youtube.com/watch?v=cma_Of-xJdY&t=11s)
-
 - [මජ්ඣෙ සූත්‍රය | Majje Suthra | A Rare Dhamma](https://www.youtube.com/watch?v=Ps0MiG55X3s)
-
 - [මූල පරියාය සූත්‍ර (Muulapariyaya sutta) 1/18 - අතිපූජ්‍ය උඩඊරියගම ධම්මජීව හිමි](https://www.youtube.com/watch?v=G1Q2VGJBv80)
-
 - [මූල පරියාය සූත්‍ර (Muulapariyaya sutta) - 2/18 අතිපූජ්‍ය උඩඊරියගම ධම්මජීව හිමි](https://www.youtube.com/watch?v=6JZIbhKjQ9A)
+
+>important
+- [ධර්මයෙ සත්‍ය දකින්න 6 Buddothpado (මෙත්මල් අරණ )](https://www.youtube.com/watch?v=No6B7tTf8sc)
 
 `90. නිවන මොහොතින් මොහොතට අවබෝධ වීමක්ද_(2022-10-02 09-19 GMT-13)`
 
@@ -1403,9 +1403,17 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 `93. මැද නොතැවරීම`
 
  - [උදයවැය ඥානය ප්‍රයෝගිකව දකින ආකාරය - 1 කොටස](https://www.youtube.com/watch?v=n0i63a3fOR8)
+ - [මා නොවන මා දකින්න](https://www.youtube.com/watch?v=7Bwzu0tKHBQ)
+  
+> important  
+ - [ධර්මයෙ සත්‍ය දකින්න 6 Buddothpado (මෙත්මල් අරණ )](https://www.youtube.com/watch?v=No6B7tTf8sc)
+ - [අලමරියඤාණ දර්ශනය Buddothpado Aryanwahanse](https://www.youtube.com/watch?v=eUUb3H-T6Ew)
+
+- [සිත හැදෙන හැටි |සප්පාය පටිපදා සුත්‍රය | Buddothpado Aryanwahanse | methmal arana](https://www.youtube.com/watch?v=Gym4JeqhKfY)
   
 `94. එතෙර වීම යනු කුමක්ද`
-
+- [ධර්ම සාකච්ඡාව - 381 | විමුක්තියේ අර්ථය (2022.10.22)](https://www.youtube.com/watch?v=Bxo24WSuagU)
+- [පෘථග්ජන කෝණයෙන් සිත මනස විඤ්ඤානය ](https://www.youtube.com/watch?v=eoU_OLyVb7c)
 
 >මෙය කියවන ඔබ දිහා ටිකක් බලන්න. හරියට බලන්න. ඇවිත් බලන්න. ඒහිපස්සිකෝ...!!! එතන මම හිටියෙම නැති බව සැක හැර දැනගන්න. මොහොතක යෙදීමක් තුළ පැවතීමක් ලෙස හට ගැනීමේ හැකියාවක්ම නොතිබුණු බව දැනගන්න කෙනා දැකගන්න.
 
