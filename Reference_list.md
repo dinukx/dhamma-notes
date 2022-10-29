@@ -170,7 +170,7 @@ https://www.youtube.com/watch?v=OTtTdvUkpvM)
 
 `25.  කාලයේ අනිත්‍ය ස්භාවය (2021-06-28 at 02:24 GMT-7)`
 
-- [~චේතනා, කාලය හා සතර අපායෙන් මිදීම ~ගරු විමුත්තා තෙරණි~](https://www.youtube.com/watch?v=S09-AnqhK6A)
+- [චේතනා, කාලය හා සතර අපායෙන් මිදීම ගරු විමුත්තා තෙරණි](https://www.youtube.com/watch?v=S09-AnqhK6A)
 
 - [කාලය සහ අවකාශය ( අතිපූජ්‍ය කොත්මලේ කුමාරකස්සප ස්වාමින්වහන්සේ )](https://www.youtube.com/watch?v=fhKTYJ3S3aI)
 
@@ -788,6 +788,9 @@ https://www.youtube.com/watch?v=7jAfaTMr5l4)
 
 - [ක්‍රියා සිත හි ප්‍රායෝගික පැතිකඩ 3 Buddothpado (මෙත්මල් අරණ )](
 https://www.youtube.com/watch?v=PytNgQrTmKE)
+
+>> addtional මාර්ග සාකච්ඡා conversations
+> - [Marga Sakachcha 01 සතියක අවධිය](https://www.youtube.com/watch?v=BDbXgrDTbU4&list=PLXV8-pNZrgn-nFHL8U7GKYMqmKzU05Xxy)
 
 - [ගිහිවතේ වැඩසිටින ආර්යන්වහන්සේලා 7 |සඤ්ඤාවේදනා නිරොධසමාපත්තිය Buddothpado Aryanwahanse |methmal arana](
 https://www.youtube.com/watch?app=desktop&v=oP1GUdP3JB8&t=27s)
