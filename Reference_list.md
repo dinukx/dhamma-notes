@@ -1406,8 +1406,9 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 `93. මැද නොතැවරීම`
 
  - [උදයවැය ඥානය ප්‍රයෝගිකව දකින ආකාරය - 1 කොටස](https://www.youtube.com/watch?v=n0i63a3fOR8)
+ - [විදර්ශනා දුරය අවදිවිය 06 ||උදයවැය ඤාණය ප්‍රායෝගිකව අත්දකිමු||Buddothpado Aryanwahanse|methmal arana](https://www.youtube.com/watch?v=yN-4-0uDEKg)
  - [මා නොවන මා දකින්න](https://www.youtube.com/watch?v=7Bwzu0tKHBQ)
-  
+ - [සතිපට්ඨානය.සතිය තුලින් මාර පාරාජය](https://www.youtube.com/watch?v=cCefkqHrfMY) 
 > important  
  - [ධර්මයෙ සත්‍ය දකින්න 6 Buddothpado (මෙත්මල් අරණ )](https://www.youtube.com/watch?v=No6B7tTf8sc)
  - [අලමරියඤාණ දර්ශනය Buddothpado Aryanwahanse](https://www.youtube.com/watch?v=eUUb3H-T6Ew)
@@ -1417,7 +1418,35 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 `94. එතෙර වීම යනු කුමක්ද`
 - [ධර්ම සාකච්ඡාව - 381 | විමුක්තියේ අර්ථය (2022.10.22)](https://www.youtube.com/watch?v=Bxo24WSuagU)
 - [පෘථග්ජන කෝණයෙන් සිත මනස විඤ්ඤානය ](https://www.youtube.com/watch?v=eoU_OLyVb7c)
+- [නිවන් දකින ප්‍රතිපදාව 1 Buddothpado (methmal arana)](https://www.youtube.com/watch?v=GqpIJSglFy4&list=RDCMUCWMS4oom8EsZc9foKt_Eajg&index=11)
+- [ශුන්‍යතාවය 1 (ක්‍රියාසිත් )මෙත්මල් අරණ](https://www.youtube.com/watch?v=oPF7-0AfVEE)
+- [ශුන්‍යතාවය 2 (මෙත්මල් අරණ )](https://www.youtube.com/watch?v=F6eIXw7Y7zw)
+- [ශුන්‍යතාවය 3 (මෙත්මල් අරණ )ඔබ ඉන්නේ කර්ම ඵලය තුළද, හේතු ඵලය කුමක්ද](https://www.youtube.com/watch?v=MAOsU7gQlzo&t=10s)
+- [ශුන්‍යතාවය 4 (මෙත්මල් අරණ )ඔබ මේතාක් නොවැසූ දහමක් මෙහි වේ .සත්‍ය නම් සත්‍යමයි .](https://www.youtube.com/watch?v=7qGURMtpOlo)  
+- [ශුන්‍යතාවය 5 (මෙත්මල් අරණ )](https://www.youtube.com/watch?v=E_rB4O36DlY)
+- [ශුන්‍යතාවය 6 (මෙත්මල් අරණ )](https://www.youtube.com/watch?v=-nH6sgrI_Hc)
 
+`95. ප්‍රත්‍ය නිරෝධය තුළින් ඉස්මතුවන ‍ නිරෝධතා ඤාණය (2022-10-30 09_57 GMT+13)`
+
+- [ශුන්‍යතාවය 7 ( මෙත්මල් අරණ )](https://www.youtube.com/watch?v=OJGE54cCEWc)
+- [ශුන්‍යතාවය 8 (මෙත්මල් අරණ )නිවන් මග නිවැරදිව හඳුනාගනිමු .ශුන්‍යතාව යනු නිවන නොවේ](https://www.youtube.com/watch?v=Uzwme2GeOdU)
+- [ශුන්‍යතාවය 9 (මෙත්මල් අරණ )](https://www.youtube.com/watch?v=nahEg_ngwaQ)
+- [ශුන්‍යතාවය | Ven Kothmale Kumarakassapa Thero](https://www.youtube.com/watch?v=RyJKoUmmvFw)
+- [ශුන්‍යතාවය නොදන්නාකම | Ven.Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=iq9AlcKW0nc)
+- [ශුන්‍යතාවය 10](https://www.youtube.com/watch?v=HonSW3yOJvc)
+- [11. ශුන්‍යතාවය , සොබාදහම මොහොත ට අවදිය - සතියය් වැදගත් - Buddothpado Arayan Wahansa.](https://www.youtube.com/watch?v=tRSEZGiMqaQ)
+- [ස්කන්ධය උදයවය ප්‍රායෝගිකව දකින අයුරු 12 Buddothpado (methmal arana)පැය 5 ක දීර්ඝ දේශනයකි( 1කොටස )](https://www.youtube.com/watch?v=Il0dr5mQc5I)
+- [ස්කන්ධය උදයවය ප්‍රායෝගිකව දකින අයුරු 13 Buddothpado (methmal arana)පැය 5 දේශණය ( 2 කොටස )](https://www.youtube.com/watch?v=xIaI0dfR03w&list=RDLVxIaI0dfR03w&start_radio=1&rv=xIaI0dfR03w&t=100)
+- [ස්කන්ධය උඋදයවය ප්‍රායෝගිකව දකින අයුරු 14 Buddothpado (methmal arana ) 3 කොටස](https://www.youtube.com/watch?v=GCEeNMAj6ho)
+
+
+- [එයත් ස්පර්ශය ප්‍රත්‍ය කරගෙනයි](https://www.youtube.com/watch?v=lhpNMV78noc)
+- [පැවැත්ම - අන්ත - නිරෝධය - ප්‍රත්‍යෙන් ඉපදීම](https://www.youtube.com/watch?v=EEhEh2jlylk)
+- [පැවැත්ම 2 - කළුවර හා ආලෝකය](https://www.youtube.com/watch?v=AdOgh0RmdHk&t=0s)
+- [පැවැත්ම - අන්ත නොයෙදීම - නිරෝධය - ප්‍රත්‍යෙන් ඉපදීම](https://www.youtube.com/watch?v=u5-jWCewJRE)
+- [මම, දර්මය සහ ස්පර්ශය](https://www.youtube.com/watch?v=bU0GpRwVfYI)
+- [අනිත්‍ය - ලැබීම සහ එතෙරවීම](https://www.youtube.com/watch?v=-a32Wd7b-NI)  
+  
 >මෙය කියවන ඔබ දිහා ටිකක් බලන්න. හරියට බලන්න. ඇවිත් බලන්න. ඒහිපස්සිකෝ...!!! එතන මම හිටියෙම නැති බව සැක හැර දැනගන්න. මොහොතක යෙදීමක් තුළ පැවතීමක් ලෙස හට ගැනීමේ හැකියාවක්ම නොතිබුණු බව දැනගන්න කෙනා දැකගන්න.
 
 
