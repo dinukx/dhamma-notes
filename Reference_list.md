@@ -1425,6 +1425,9 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [ශුන්‍යතාවය 4 (මෙත්මල් අරණ )ඔබ මේතාක් නොවැසූ දහමක් මෙහි වේ .සත්‍ය නම් සත්‍යමයි .](https://www.youtube.com/watch?v=7qGURMtpOlo)  
 - [ශුන්‍යතාවය 5 (මෙත්මල් අරණ )](https://www.youtube.com/watch?v=E_rB4O36DlY)
 - [ශුන්‍යතාවය 6 (මෙත්මල් අරණ )](https://www.youtube.com/watch?v=-nH6sgrI_Hc)
+  
+> Reading meterials
+  - [ථේරවාදයේ ශුන්‍යතා දර්ශනය](https://github.com/dinukx/dhamma-notes/blob/main/other_dhamma_views/%E0%B6%AE%E0%B7%9A%E0%B6%BB%E0%B7%80%E0%B7%8F%E0%B6%AF%E0%B6%BA%E0%B7%9A_%E0%B7%81%E0%B7%94%E0%B6%B1%E0%B7%8A%E2%80%8D%E0%B6%BA%E0%B6%AD%E0%B7%8F_%E0%B6%AF%E0%B6%BB%E0%B7%8A%E0%B7%81%E0%B6%B1%E0%B6%BA.MD)  
 
 `95. ප්‍රත්‍ය නිරෝධය තුළින් ඉස්මතුවන ‍ නිරෝධතා ඤාණය (2022-10-30 09_57 GMT+13)`
 
