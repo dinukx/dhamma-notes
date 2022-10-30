@@ -1458,3 +1458,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 >තමා තුළින්, බුදුන් දැකීම නිවන් දැකීමමයි.
 
+
+
+
+[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fdinukx%2Fdhamma-notes%2Fblob%2Fmain%2FReference_list.md&count_bg=%2379C83D&title_bg=%23555555&icon=&icon_color=%23E7E7E7&title=hits&edge_flat=false)](https://hits.seeyoufarm.com)
