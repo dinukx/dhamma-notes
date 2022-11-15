@@ -1452,6 +1452,25 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [මම, දර්මය සහ ස්පර්ශය](https://www.youtube.com/watch?v=bU0GpRwVfYI)
 - [අනිත්‍ය - ලැබීම සහ එතෙරවීම](https://www.youtube.com/watch?v=-a32Wd7b-NI)  
   
+
+
+> below 96 session is bit deep.
+> so go through these videos first as pre-req:
+> - [දිට්ඨ සුථ මුත විඤ්ඤාත නම් මන්ඥනා, මන්ඥනා ලෙස නුවණින් දැකීම - 01](https://www.youtube.com/watch?v=m5LduNEN4wY)
+> - [දිට්ඨ සුථ මුත විඤ්ඤාත නම් මන්ඥනා, මන්ඥනා ලෙස නුවණින් දැකීම - 02](https://www.youtube.com/watch?v=F-ttHOZj-70)
+> - [දර්ශනයෙන් ආශ්‍රව ප්‍රහාණය වීම](https://www.youtube.com/watch?v=ervXnzRQZeI)
+> - [එහෙනම් අපි වැඩ පටන් ගමු - Pls share million #Arahathmaga](https://www.youtube.com/watch?v=h6wAz_LPjsY)
+> - [සම්මා සතිය_අවබෝධය_ප්‍රඥාව_ඤාණය #Arahathmaga](https://www.youtube.com/watch?v=ZxJ-haLzn4U)
+
+
+`96. ද්වතාවය ඉක්මවීම තුළින් මතුවන ලෝකෝත්තර යෝනිසෝ මනසිකාරය`
+ - [රුප්පනය | බුදුන් වදාළ රූපය](https://www.youtube.com/watch?v=FE7TZg5jwEY)
+ - [ඔබව යලි මට හමු නොවනු ඇත(මට මගේ යාලුවෝ සොයා දෙන්න) #Arahathmaga](https://www.youtube.com/watch?v=UkVaWq1GPWQ)
+ - [භව හටගන්නා ආකාරය/ සිතේ ක්‍රියා කාරිත්වය-Arahath maga](https://www.youtube.com/watch?v=7apeVc6Geug) 
+ - [SADAHAM SAWANA || භූත සූත්‍රය || Ven Mankadawala Sudassana Himi](https://www.youtube.com/watch?v=aXdUFus7Tu4)
+ - [SADAHAM SAWANA || නිරුද්ධ වන හැටි || Ven Kothmale Kumarakassapa Himi](https://www.youtube.com/watch?v=9G8PesiZack)
+ - [මනුශ්‍ය ජීවිතේ හැම මොහොතටම උපරිම වටිනාකමක් දෙන්න..](https://www.youtube.com/watch?v=ImwQtziMWPg)
+
 >මෙය කියවන ඔබ දිහා ටිකක් බලන්න. හරියට බලන්න. ඇවිත් බලන්න. ඒහිපස්සිකෝ...!!! එතන මම හිටියෙම නැති බව සැක හැර දැනගන්න. මොහොතක යෙදීමක් තුළ පැවතීමක් ලෙස හට ගැනීමේ හැකියාවක්ම නොතිබුණු බව දැනගන්න කෙනා දැකගන්න.
 
 
