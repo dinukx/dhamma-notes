@@ -1455,12 +1455,21 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 
 > below 96 session is bit deep.
-> so go through these videos first as pre-req:
+> so go through these videos first as pre-req: ( including below  ඔවදන් section)
 > - [දිට්ඨ සුථ මුත විඤ්ඤාත නම් මන්ඥනා, මන්ඥනා ලෙස නුවණින් දැකීම - 01](https://www.youtube.com/watch?v=m5LduNEN4wY)
 > - [දිට්ඨ සුථ මුත විඤ්ඤාත නම් මන්ඥනා, මන්ඥනා ලෙස නුවණින් දැකීම - 02](https://www.youtube.com/watch?v=F-ttHOZj-70)
 > - [දර්ශනයෙන් ආශ්‍රව ප්‍රහාණය වීම](https://www.youtube.com/watch?v=ervXnzRQZeI)
 > - [එහෙනම් අපි වැඩ පටන් ගමු - Pls share million #Arahathmaga](https://www.youtube.com/watch?v=h6wAz_LPjsY)
 > - [සම්මා සතිය_අවබෝධය_ප්‍රඥාව_ඤාණය #Arahathmaga](https://www.youtube.com/watch?v=ZxJ-haLzn4U)
+
+>ජිනාලංකාර ස්වාමීන් වහන්සේගෙන් ලැබුන ඔවදන්
+> - [Marga sakachcha - 90.ප්‍රත්‍ය සහ පත්‍යයොඋපන්නය](https://drive.google.com/file/d/1ajEEaRB3FXoUFNkUqUz5PZx_Q_UadEFj/view?usp=share_link)
+> - [Marga sakachcha - 91. ධර්මයට ඇලීම](https://drive.google.com/file/d/1ajOLnPBRPH6A9UsyJV18DqsCRlobYXz3/view?usp=share_link)
+> - [92 විදර්ශනා ඥාණ](https://drive.google.com/file/d/1alULYl11kFXbRNqa_NtHTLQTorrDv1PC/view?usp=share_link)
+> - [93 ප්‍රෂ්ණය සොයා යෑම](https://drive.google.com/file/d/1aopMCbf43yRtZZ5Ek10dUDJJRcyntTlO/view?usp=share_link)
+> - [95. අනිත්‍ය ප්‍රායෝගිකව දැකීම](https://drive.google.com/file/d/1azVwDHr6raJ4aFZRowM_vyVbPobz86ts/view?usp=share_link)
+> - [96 ප්‍රශ්න ඇසීමේ අවශ්‍යතාවය ගිලිහීම](https://drive.google.com/file/d/1b-J2wbJKmKPw4lqv6lvqQu94csdvk5xs/view?usp=share_link)
+> - [97. ඒක සංකතයක්](https://drive.google.com/file/d/1b3DJU1SvWw81X0IG0nlZfV-as0mnlF35/view?usp=share_link)
 
 
 `96. ද්වතාවය ඉක්මවීම තුළින් මතුවන ලෝකෝත්තර යෝනිසෝ මනසිකාරය`
