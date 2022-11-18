@@ -1,6 +1,12 @@
 #### <b><u> Why search dhamma </u></b> 
 
+-- සිංහලෙන් --
 
+ජීවිතය තුළ සැමදාම සොයාගෙන යන `සතුට`,  දුකක් නොලබා සතුටක් ලැබීමට තියෙන `කැමැත්තට ඇලී` ජීවිත ගමනේ යමින් සිටිදී හමු වූ දෙයක්මයි ඔබ මේ කියවන්නේ. එතනදි සෙවීමේ දුක මිස දිගටම පවතින `සතුටක්` හමුවෙලා `ම` නෑ. සතුට දිගටම තියෙනවද කියලා දන්නෙ`ම` නෑ. එක දිගට නොපවතින ස්වභාවයකින් මයි `සතුට` හමුවෙලා තියෙන්නේ. `නොපවතින` ලෙස හමුවුණාට `පවතින` සතුටක් සොයාගෙනයි මේ ගමන. අන්න `ඒ` දුකින් ගැල වෙන්නයි `ධර්මය`...!!!
+
+
+
+-- In English --
 
 In life all of you want to be `happy`, have good experiences and avoid sadness at all times. so in order to chase that dream (desired state) you undertake hardship but the happiness doesnt stay, it comes and goes, never permenant. after sometime you undertake this hardship as a survival cycle. you just endure weight of the hardship, because of the value you have given to the dream.
 
@@ -21,3 +27,5 @@ Thats why I started Search `Dhamma` (also known as `Dharmathaa`). English meanin
 
 ### Back to main page
 [back](https://github.com/dinukx/dhamma-notes/blob/main/Reference_list.md)
+
+
