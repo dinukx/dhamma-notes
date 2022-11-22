@@ -1472,11 +1472,15 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 > - [97. ඒක සංකතයක්](https://drive.google.com/file/d/1b3DJU1SvWw81X0IG0nlZfV-as0mnlF35/view?usp=share_link)
 
 
-`96. ද්වතාවය ඉක්මවීම තුළින් මතුවන ලෝකෝත්තර යෝනිසෝ මනසිකාරය`
+`96. ද්වතාවය ඉක්මවීම තුළින් මතුවන ලෝකෝත්තර යෝනිසෝ මනසිකාරය` [Link](https://youtu.be/Xjwv3BQXh-o)
  - [රුප්පනය | බුදුන් වදාළ රූපය](https://www.youtube.com/watch?v=FE7TZg5jwEY)
  - [ඔබව යලි මට හමු නොවනු ඇත(මට මගේ යාලුවෝ සොයා දෙන්න) #Arahathmaga](https://www.youtube.com/watch?v=UkVaWq1GPWQ)
  - [භව හටගන්නා ආකාරය/ සිතේ ක්‍රියා කාරිත්වය-Arahath maga](https://www.youtube.com/watch?v=7apeVc6Geug) 
  - [SADAHAM SAWANA || භූත සූත්‍රය || Ven Mankadawala Sudassana Himi](https://www.youtube.com/watch?v=aXdUFus7Tu4)
+
+
+`97. මනසිකාරය සහ ආශ්‍රව ප්‍රහානය ගැඹුරට` [Link](https://youtu.be/SCVqL27c-1E)
+
  - [SADAHAM SAWANA || නිරුද්ධ වන හැටි || Ven Kothmale Kumarakassapa Himi](https://www.youtube.com/watch?v=9G8PesiZack)
  - [මනුශ්‍ය ජීවිතේ හැම මොහොතටම උපරිම වටිනාකමක් දෙන්න..](https://www.youtube.com/watch?v=ImwQtziMWPg)
 
