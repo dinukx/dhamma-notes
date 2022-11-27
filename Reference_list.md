@@ -1477,12 +1477,19 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
  - [ඔබව යලි මට හමු නොවනු ඇත(මට මගේ යාලුවෝ සොයා දෙන්න) #Arahathmaga](https://www.youtube.com/watch?v=UkVaWq1GPWQ)
  - [භව හටගන්නා ආකාරය/ සිතේ ක්‍රියා කාරිත්වය-Arahath maga](https://www.youtube.com/watch?v=7apeVc6Geug) 
  - [SADAHAM SAWANA || භූත සූත්‍රය || Ven Mankadawala Sudassana Himi](https://www.youtube.com/watch?v=aXdUFus7Tu4)
+- [SADAHAM SAWANA || නිරුද්ධ වන හැටි || Ven Kothmale Kumarakassapa Himi](https://www.youtube.com/watch?v=9G8PesiZack)
+ - [මනුශ්‍ය ජීවිතේ හැම මොහොතටම උපරිම වටිනාකමක් දෙන්න..](https://www.youtube.com/watch?v=ImwQtziMWPg)
 
 
 `97. මනසිකාරය සහ ආශ්‍රව ප්‍රහානය ගැඹුරට` [Link](https://youtu.be/SCVqL27c-1E)
 
- - [SADAHAM SAWANA || නිරුද්ධ වන හැටි || Ven Kothmale Kumarakassapa Himi](https://www.youtube.com/watch?v=9G8PesiZack)
- - [මනුශ්‍ය ජීවිතේ හැම මොහොතටම උපරිම වටිනාකමක් දෙන්න..](https://www.youtube.com/watch?v=ImwQtziMWPg)
+ - [නිවන් මගට ඒම වලකන සත්ධර්ම ශ්‍රවණයේදී සිදුවන වැරදි - සුස්සූසති සූත්‍රය](https://www.youtube.com/watch?v=bmjHBVZAIcM)
+ - [කළයුත්ත - ආශ්‍රව ප්‍රහාණය](https://www.youtube.com/watch?v=KfcrdiWHkpY)
+ - [නිවනට අවශ්‍ය ප්‍රඥාව හටගන්නේ කෙසේද? ](https://www.youtube.com/watch?v=TBHLFutS8uI)
+ - [නිබ්බේධික සූත්‍රය - නිවීමට මගක් - වේදනා පරියාය](https://www.youtube.com/watch?v=rDQIkdQnST0)
+ - [නිබ්බේධික සූත්‍රය - නිවීමට මගක් - කාමය පරියාය](https://www.youtube.com/watch?v=C-Yo7qVwDWc)
+ - [නිබ්බේධික සූත්‍රය නිවීමට මගක් සංඥා පරියාය](https://www.youtube.com/watch?v=8O2h5c5syfg)
+  
 
 >මෙය කියවන ඔබ දිහා ටිකක් බලන්න. හරියට බලන්න. ඇවිත් බලන්න. ඒහිපස්සිකෝ...!!! එතන මම හිටියෙම නැති බව සැක හැර දැනගන්න. මොහොතක යෙදීමක් තුළ පැවතීමක් ලෙස හට ගැනීමේ හැකියාවක්ම නොතිබුණු බව දැනගන්න කෙනා දැකගන්න.
 
