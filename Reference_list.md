@@ -639,6 +639,7 @@ https://www.youtube.com/watch?v=Q39uUxBDiUA)
 - [සෝවාන් වීම යනු කුමක් ද? -අතිපූජ්‍ය මාන්කඩවල සුදස්සන ස්වාමින්වහන්සේ](
 https://www.youtube.com/watch?v=OOFfwyXG0Y8)
 
+- [සෝවාන් වීමට දැනගත යුතු කරණු.](https://www.youtube.com/watch?v=DNShZdVYNL0)
 
 `52. සක්කාය සංඥාව මූලික මට්ටමෙන් (2022-02-05 13:35 GMT-8)`
 
@@ -923,6 +924,8 @@ https://www.youtube.com/watch?v=2HeOvO0JTQg)
 - [394: ආරම්මණ ප්‍රත්‍යය පිළිබඳව සිදුකෙරෙන ඉතාමත් රසවත් ධර්ම විග්‍රයක්.](
 https://www.youtube.com/watch?v=5qOqwReBhWA)
 
+> listen to the 12 sessions in the below link
+- [නිවනෙන් නිවෙන මග [ධර්ම සාකච්ඡා මාලාව - 02]](https://www.youtube.com/playlist?list=PL1GDHMYvRSTT_wmlWjWoXFuuv95SMinD7)
 
 
 `65. රූපය බාහිර පවතීද.mp3`
