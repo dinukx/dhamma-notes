@@ -1483,7 +1483,9 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 `97. මනසිකාරය සහ ආශ්‍රව ප්‍රහානය ගැඹුරට` [Link](https://youtu.be/SCVqL27c-1E)
 
+ - [නිවැරදි සත්ධර්ම ශ්‍රවණය](https://www.youtube.com/watch?v=3UzyK3uALyw)
  - [නිවන් මගට ඒම වලකන සත්ධර්ම ශ්‍රවණයේදී සිදුවන වැරදි - සුස්සූසති සූත්‍රය](https://www.youtube.com/watch?v=bmjHBVZAIcM)
+ - [යෝනිසෝ මනසිකාරය සහ අයෝනිසෝ මනසිකාරය - ආශ්‍රව ප්‍රහාණය](https://www.youtube.com/watch?v=tbghm2PAcJ0)
  - [කළයුත්ත - ආශ්‍රව ප්‍රහාණය](https://www.youtube.com/watch?v=KfcrdiWHkpY)
  - [නිවනට අවශ්‍ය ප්‍රඥාව හටගන්නේ කෙසේද? ](https://www.youtube.com/watch?v=TBHLFutS8uI)
  - [නිබ්බේධික සූත්‍රය - නිවීමට මගක් - ආස්‍රව පරියාය](https://www.youtube.com/watch?v=dlwhHknVxPU)
