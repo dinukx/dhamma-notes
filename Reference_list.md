@@ -102,8 +102,9 @@ investigating the `Core dhamma principles` in practical day to day life. finding
 `00. listen to introduction sections first *important*`
 
 
-> Then Start listening to 1-19 sessions in `Main dhamma Collection`
-> - After each session , do you own research about the content in them. if there are new words that you didnt know before find youtube sessions about them. listen to any thero/ dhamma programme about those topics. enhance your knowledge about them.
+> Then Start listening to `1 to 19 sessions` in `Main dhamma Collection`
+> - After each session , do you own research about the content in them. if there are new words that you didnt know before find youtube sessions about them. listen to any thero/ dhamma programme about those topics. enhance your knowledge about them. ( හැම session ඒකටම පස්සේ අලුතෙන්  හමුවූ වචන ගැන ගවේශණයක් කරන්න. ඕනෙම දේශකයන් වහන්සේ නමකගේ දේශනා ශ්‍රවණය කරන්න. ඒ වචන විවිධ කෝණවලින් පරිශීලනය වෙන හැටි බලන්න.  එකදු කෝණයකට වත්  නොඇලී  ධර්මය ගවේෂණය කරන්න. )
+> 
 > - it is natural to feel earlier sessions are content heavy. go through them. අත් නොහැර ඉදිරියට යන්න විර්ය කරන්න. යන්න යන්න ධර්මය අවබෝධ වීමේ ස්වභාවය තමා තුළින් ම දැක ගැනීමේ හැකියාව ලැබෙන නිසා ඒ සඳහා නොපසුබට උත්සාහය වැදගත්. වීර්ය කරන්න.
 > - it is recommended to create a short note after each session, so you can refer back to those points when you need them in the future. this really helped me to connect things together.
 > - after each 5 sessions,  ඔබට හමු වූ කල්‍යාණ මිත්‍රයා සමග ධර්ම  සාකච්ඡාවක යෙදෙන්න. ඔබ ඉන්නා කෝණය විමර්ශනය කරන්න.
