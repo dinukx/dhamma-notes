@@ -107,7 +107,7 @@ investigating the `Core dhamma principles` in practical day to day life. finding
 > 
 > - it is natural to feel earlier sessions are content heavy. go through them. අත් නොහැර ඉදිරියට යන්න විර්ය කරන්න. යන්න යන්න ධර්මය අවබෝධ වීමේ ස්වභාවය තමා තුළින් ම දැක ගැනීමේ හැකියාව ලැබෙන නිසා ඒ සඳහා නොපසුබට උත්සාහය වැදගත්. වීර්ය කරන්න.
 > - it is recommended to create a short note after each session, so you can refer back to those points when you need them in the future. this really helped me to connect things together.
-> - after each 5 sessions,  ඔබට හමු වූ කල්‍යාණ මිත්‍රයා සමග ධර්ම  සාකච්ඡාවක යෙදෙන්න. ඔබ ඉන්නා කෝණය විමර්ශනය කරන්න.
+> - after each 5 sessions,  ඔබට හමු වූ කල්‍යාණ මිත්‍රයා සමග ධර්ම  සාකච්ඡාවක යෙදෙන්න. ඔබ ඉන්නා කෝණය විමර්ශනය කරන්න. ධර්මය ගවේෂණය කරන්නේ තමාගේ කෝණයේ වැරැද්ද සොයාගැනීමට නිසා කල්‍යාණ මිත්‍ර ඇසුර අත්‍යවශ්‍යයි.
 > 
 > Listen to each references below after listening to the respective video (in Main Collection )
 
