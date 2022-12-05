@@ -1510,10 +1510,13 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 `Main Collection - 99. ප්‍රඥාවට පමණක් අසුවන නිවන් මාර්ගය ( අනාත්ම ස්වභාවය ගැඹුරට )` [link](https://youtu.be/3oEnTVxNCmw)
 - [Marga Sakachcha - 94. දර්ශනවාදී අසරණකම](https://youtu.be/9CHN5eYg1kw)
+> ref
 - [චිත්ත, මන, විඤ්ඤාණ ලෙස හඳුන්වන්නේ අපගේ සිතද?](https://www.youtube.com/watch?v=mmcubch7xSU)
 - [පංචස්කන්ධය, පටිච්චසමුප්පාදය, සංස්ලේෂණය හා විශ්ලේෂණය](https://www.youtube.com/watch?v=blvC-0_n4Fg)
 - [අභිධර්මයේ භෞතික විද්‍යාව](https://www.youtube.com/watch?v=RSNS1Kba7tQ)
 - [අපිට තියෙන අමුතු භාවනා](https://www.youtube.com/watch?v=oxDwptc_dm0)
+> very important playlist  
+- [අභිධර්මය ජීවිතය තුළින් දකින්නේ කෙසේද](https://www.youtube.com/playlist?list=PLDtACeMM3vfUflwwKSYRKn5xmT1ObBfZA)  
 ---
 
 >මෙය කියවන ඔබ දිහා ටිකක් බලන්න. හරියට බලන්න. ඇවිත් බලන්න. ඒහිපස්සිකෝ...!!! එතන මම හිටියෙම නැති බව සැක හැර දැනගන්න. මොහොතක යෙදීමක් තුළ පැවතීමක් ලෙස හට ගැනීමේ හැකියාවක්ම නොතිබුණු බව දැනගන්න කෙනා දැකගන්න.
