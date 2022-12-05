@@ -1509,10 +1509,10 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 
 `Main Collection - 99. ප්‍රඥාවට පමණක් අසුවන නිවන් මාර්ගය ( අනාත්ම ස්වභාවය ගැඹුරට )` [link](https://youtu.be/3oEnTVxNCmw)
+- [Marga Sakachcha - 94. දර්ශනවාදී අසරණකම](https://youtu.be/9CHN5eYg1kw)
 - [චිත්ත, මන, විඤ්ඤාණ ලෙස හඳුන්වන්නේ අපගේ සිතද?](https://www.youtube.com/watch?v=mmcubch7xSU)
 - [පංචස්කන්ධය, පටිච්චසමුප්පාදය, සංස්ලේෂණය හා විශ්ලේෂණය](https://www.youtube.com/watch?v=blvC-0_n4Fg)
 - [අභිධර්මයේ භෞතික විද්‍යාව](https://www.youtube.com/watch?v=RSNS1Kba7tQ)
-- [Marga Sakachcha - 94. දර්ශනවාදී අසරණකම](https://youtu.be/9CHN5eYg1kw)
 - [අපිට තියෙන අමුතු භාවනා](https://www.youtube.com/watch?v=oxDwptc_dm0)
 ---
 
