@@ -1515,7 +1515,8 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [පංචස්කන්ධය, පටිච්චසමුප්පාදය, සංස්ලේෂණය හා විශ්ලේෂණය](https://www.youtube.com/watch?v=blvC-0_n4Fg)
 - [අභිධර්මයේ භෞතික විද්‍යාව](https://www.youtube.com/watch?v=RSNS1Kba7tQ)
 - [අපිට තියෙන අමුතු භාවනා](https://www.youtube.com/watch?v=oxDwptc_dm0)
-> very important playlist  
+> very important playlist below
+> යමෙකු ට තවමත් අභිධර්මය සහ ජීවිතය ගැළපී නැත්නම්, අභිධර්මය සේක මට්ටමින් ගවේෂණය කරන විදිහ  පෙන්නන අතිවිශිෂ්ට විස්තර කිරීමක් තමයි පහත අභිධර්ම play list එකේ තියෙන්නෙ, ඒක මිස් කරන්නැතුව අනිවාරෙන් බලන්න.  
 - [අභිධර්මය ජීවිතය තුළින් දකින්නේ කෙසේද](https://www.youtube.com/playlist?list=PLDtACeMM3vfUflwwKSYRKn5xmT1ObBfZA)  
 ---
 
