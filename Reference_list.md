@@ -1518,6 +1518,19 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 > very important playlist below
 > යමෙකු ට තවමත් අභිධර්මය සහ ජීවිතය ගැළපී නැත්නම්, අභිධර්මය සේක මට්ටමින් ගවේෂණය කරන විදිහ  පෙන්නන අතිවිශිෂ්ට විස්තර කිරීමක් තමයි පහත අභිධර්ම play list එකේ තියෙන්නෙ, ඒක මිස් කරන්නැතුව අනිවාරෙන් බලන්න.  
 - [අභිධර්මය ජීවිතය තුළින් දකින්නේ කෙසේද](https://www.youtube.com/playlist?list=PLDtACeMM3vfUflwwKSYRKn5xmT1ObBfZA)  
+
+
+`Main Collection - 100.  භෞතික ජීවිතය විදර්ශනා කරන අයුරු සොයා යෑම (අවිද්‍යාව ගැඹුරට)  Part 1` [link](https://youtu.be/PfjY60SULRI)
+
+`Main Collection - 101.  භෞතික ජීවිතය විදර්ශනා කරන අයුරු සොයා යෑම (අවිද්‍යාව ගැඹුරට)  Part 2` [link](https://youtu.be/LH51jISl3ZQ)
+
+- [Marga Sakachcha - 97.  ධර්මය මට තේරෙන විදිය හරිද ?](https://youtu.be/M0ioYwSV1eg)
+- [ඡ ඡක්ක සූත්‍රය | Cha Chakka Suthraya ](https://www.youtube.com/watch?v=3c8UADCAGM0)
+- [සසුන නසන ධර්මයේ පදපරම](https://www.youtube.com/watch?v=NpNrIF-w8bw)
+- [මෙන්න සිත එක අරමුණනක තබාගන්න විදිය Ven Mankadawala sudassana thero](https://www.youtube.com/watch?v=pCxX6OgHme0)
+- [චිත්ත, සීල, සමාධි හා ප්‍රඥා | සම්මානිත මහාචාර්ය සුමනපාල ගල්මංගොඩ](https://www.youtube.com/watch?v=X9KXD_gGwx0)
+- [අනත්ත ලක්ඛණ සූත්‍රය - Mankadawala Sudassana Himi](https://www.youtube.com/watch?v=Q-3HqE5cAfs)
+
 ---
 
 >මෙය කියවන ඔබ දිහා ටිකක් බලන්න. හරියට බලන්න. ඇවිත් බලන්න. ඒහිපස්සිකෝ...!!! එතන මම හිටියෙම නැති බව සැක හැර දැනගන්න. මොහොතක යෙදීමක් තුළ පැවතීමක් ලෙස හට ගැනීමේ හැකියාවක්ම නොතිබුණු බව දැනගන්න කෙනා දැකගන්න.
