@@ -1531,7 +1531,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [චිත්ත, සීල, සමාධි හා ප්‍රඥා | සම්මානිත මහාචාර්ය සුමනපාල ගල්මංගොඩ](https://www.youtube.com/watch?v=X9KXD_gGwx0)
 - [අනත්ත ලක්ඛණ සූත්‍රය - Mankadawala Sudassana Himi](https://www.youtube.com/watch?v=Q-3HqE5cAfs)
 - [මම කොහෙන් ගියත් කොටුවෙනවනේ!](https://www.youtube.com/watch?v=TXrkeyHbF4Q)
-
+- [ඇත නැත](https://www.youtube.com/watch?v=fjiz3lx0890)
 
 ---
 
