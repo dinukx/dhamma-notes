@@ -1531,6 +1531,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 `Main Collection - 101.  භෞතික ජීවිතය විදර්ශනා කරන අයුරු සොයා යෑම (අවිද්‍යාව ගැඹුරට)  Part 2` [link](https://youtu.be/LH51jISl3ZQ)
 
 - [Marga Sakachcha - 97.  ධර්මය මට තේරෙන විදිය හරිද ?](https://youtu.be/M0ioYwSV1eg)
+- [මග ඵල ඔබේ දෝතට #Arahathmaga](https://www.youtube.com/watch?v=_9sF4XIpyYo)
 - [ඡ ඡක්ක සූත්‍රය | Cha Chakka Suthraya ](https://www.youtube.com/watch?v=3c8UADCAGM0)
 - [සසුන නසන ධර්මයේ පදපරම](https://www.youtube.com/watch?v=NpNrIF-w8bw)
 - [මෙන්න සිත එක අරමුණනක තබාගන්න විදිය Ven Mankadawala sudassana thero](https://www.youtube.com/watch?v=pCxX6OgHme0)
