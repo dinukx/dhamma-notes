@@ -545,8 +545,6 @@ https://www.youtube.com/watch?v=xDjJEvhRfJw&list=PLFctRxK1j18AoFreUdx0xyFtWCmzWb
 https://www.youtube.com/watch?v=0_zcc9O1-iY)
 
 
-
-
 `Main Collection - 46. චිත්ත නිරෝධය (2021-12-20 at 00:06 GMT-8)`  [link](https://youtu.be/Y8uATIFuwTg)
 
 
@@ -817,6 +815,14 @@ https://www.youtube.com/watch?v=hNaSb0EEaHE)
 - [මට මම නැතිවන හැටි 03 |නිහඩව නිවන්මග යන භික්ෂුණින් | Buddothpado Aryanwahanse |methmal arana](
 https://www.youtube.com/watch?v=42VMxGpP7WE)
 
+
+---
+> Now start listening to Margasakachcha playlist too.
+> 
+>දැන් මාර්ග සාකච්ඡා එකතුවත් අහන්න පටන් ගන්න.
+
+> [Marga Sakachcha (මාර්ග සාකච්ඡා) Playlist](https://www.youtube.com/watch?v=BDbXgrDTbU4&list=PLXV8-pNZrgn-nFHL8U7GKYMqmKzU05Xxy) 
+---
 
 `Main Collection - 58. සංඥාවේ සමුදය(2022-03-26 14:47 GMT-7)`  [link](https://youtu.be/bOAfipbK5ME)
 
