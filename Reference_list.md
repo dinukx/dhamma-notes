@@ -725,6 +725,9 @@ https://www.youtube.com/watch?v=IPR8Ex4p-94)
 
 - [සෝතාපන්නවීමට අවශ්‍ය සමාධිය (2022.01.15)](
 https://www.youtube.com/watch?v=4rOglzp5394)
+>listen to the one below and entire playlist.
+ - [[ 3/12 ] - සෝවාන් වීමට දැනගත යුතු කරණු.](https://www.youtube.com/watch?v=DNShZdVYNL0)
+ - [නිවනෙන් නිවෙන මග [ධර්ම සාකච්ඡා මාලාව - 02]](https://www.youtube.com/playlist?list=PL1GDHMYvRSTT_wmlWjWoXFuuv95SMinD7)
 
 > special playlist
 - [නිවන් දකින්න සුදුසුකම්](https://www.youtube.com/playlist?list=PLl_HpT7h7Vicn82qwVRimgJjqviKpQsCH)
