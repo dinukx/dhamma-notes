@@ -1554,7 +1554,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [ සබ්බාසව සූත්‍ර දේශනා මාලාව 01 - අති පූජනීය පිටිගල ගුණරතන මාහිමිපාණන් වහන්සේ](https://www.youtube.com/watch?v=Ib_Ykf05nlk)
 - [සබ්බාසව සූත්‍ර දේශනා මාලාව 02 - අති පූජනීය පිටිගල ගුණරතන මාහිමිපාණන් වහන්සේ](https://www.youtube.com/watch?v=ZQjKX_87lkU)
 - [මට පෙනෙන මගේ සිත විදර්ශනාව | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=cKf4b_ktUYk)
-
+- [479: චිත්ත චෛතසික ධර්මයන් නිවැරදිව වටහා නොගැනීමේ හේතුවෙන් එම ධර්ම වලට පුද්ගල සංඥා ආරෝපණය කරන ආකාරය](https://www.youtube.com/watch?v=wQMOUO4JdVI)
 
 
 `Main Collection - 103. නිවන සහ නිවන්මග අතර වෙනස හඳුනා ගැනීමට අවශ්‍ය ප්‍රඥාව`
