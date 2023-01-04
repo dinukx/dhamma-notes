@@ -1540,6 +1540,27 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [මම කොහෙන් ගියත් කොටුවෙනවනේ!](https://www.youtube.com/watch?v=TXrkeyHbF4Q)
 - [ඇත නැත](https://www.youtube.com/watch?v=fjiz3lx0890)
 
+
+
+`Main Collection - 102. "දකිනවා" කියන තැන සකස් වන්නේ කොහොමද ? ( වින්‍යප්ති රූප ගැඹුරට )`
+[link](https://youtu.be/7E3WKr-6D_A) 
+
+- [Sadaham sawana - මෙන්න සිත එක අරමුණනක තබාගන්න විදිය](https://www.youtube.com/watch?v=pCxX6OgHme0)
+- [සබ්බාසව සූත්‍රය, සියලුම ආශ්‍රව ධර්ම සංවර කරන ප්‍රතිපදාව | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=yuPQdqDa-KU)
+- [සති නිමිත්ත | Ven Mankadawala Sudassana Thero | පූජ්‍ය මාන්කඩවල සුදස්සන හිමි](https://www.youtube.com/watch?v=lC2oecRSRRs)
+- [ සබ්බාසව සූත්‍ර දේශනා මාලාව 01 - අති පූජනීය පිටිගල ගුණරතන මාහිමිපාණන් වහන්සේ](https://www.youtube.com/watch?v=Ib_Ykf05nlk)
+- [සබ්බාසව සූත්‍ර දේශනා මාලාව 02 - අති පූජනීය පිටිගල ගුණරතන මාහිමිපාණන් වහන්සේ](https://www.youtube.com/watch?v=ZQjKX_87lkU)
+
+
+
+`Main Collection - 103. නිවන සහ නිවන්මග අතර වෙනස හඳුනා ගැනීමට අවශ්‍ය ප්‍රඥාව`
+
+- [නිවන යන ධර්මතාවය නිවැරැදිව අවබෝධයට |Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=YAZ2CV-PDDI)
+- [ඉතා දුර් ලභ කරුණු සහිත දේශනයකි || Ven Mankadawal;a Sudassana Himi](https://www.youtube.com/watch?v=k-xJapjTLoE)
+- [අවබෝධයෙන් යථාර්තය දැක්මට || Ven Mankadawal;a Sudassana Himi](https://www.youtube.com/watch?v=sS3C9oBw6Po)
+- [අවිද්‍යඅදුරේ බුදුන් සොයන මිත්‍යාදෘෂ්ටික බෟද්ධයිනි |Buddothpado Aryanwahanse](https://www.youtube.com/watch?v=U76nOr1TOQw)
+- [අභිඥා ඥානයට හසු වන පරම සත්‍ය පැය දාහතරේ...](https://www.youtube.com/playlist?list=PLlPPPouSZxQ0PDzKUwWb8N4ZDzPb6J505)
+  
 ---
 
 >මෙය කියවන ඔබ දිහා ටිකක් බලන්න. හරියට බලන්න. ඇවිත් බලන්න. ඒහිපස්සිකෝ...!!! එතන මම හිටියෙම නැති බව සැක හැර දැනගන්න. මොහොතක යෙදීමක් තුළ පැවතීමක් ලෙස හට ගැනීමේ හැකියාවක්ම නොතිබුණු බව දැනගන්න කෙනා දැකගන්න.
