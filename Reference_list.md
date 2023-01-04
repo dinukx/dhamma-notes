@@ -1553,6 +1553,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [සති නිමිත්ත | Ven Mankadawala Sudassana Thero | පූජ්‍ය මාන්කඩවල සුදස්සන හිමි](https://www.youtube.com/watch?v=lC2oecRSRRs)
 - [ සබ්බාසව සූත්‍ර දේශනා මාලාව 01 - අති පූජනීය පිටිගල ගුණරතන මාහිමිපාණන් වහන්සේ](https://www.youtube.com/watch?v=Ib_Ykf05nlk)
 - [සබ්බාසව සූත්‍ර දේශනා මාලාව 02 - අති පූජනීය පිටිගල ගුණරතන මාහිමිපාණන් වහන්සේ](https://www.youtube.com/watch?v=ZQjKX_87lkU)
+- [මට පෙනෙන මගේ සිත විදර්ශනාව | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=cKf4b_ktUYk)
 
 
 
