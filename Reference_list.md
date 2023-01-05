@@ -1564,7 +1564,9 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [අවබෝධයෙන් යථාර්තය දැක්මට || Ven Mankadawal;a Sudassana Himi](https://www.youtube.com/watch?v=sS3C9oBw6Po)
 - [අවිද්‍යඅදුරේ බුදුන් සොයන මිත්‍යාදෘෂ්ටික බෟද්ධයිනි |Buddothpado Aryanwahanse](https://www.youtube.com/watch?v=U76nOr1TOQw)
 - [අභිඥා ඥානයට හසු වන පරම සත්‍ය පැය දාහතරේ...](https://www.youtube.com/playlist?list=PLlPPPouSZxQ0PDzKUwWb8N4ZDzPb6J505)
-  
+
+>important
+- [ප්‍රඥාවට වඩා කුසලයක් නැත ](https://www.youtube.com/watch?v=aqQmHUdxxuw)  
 ---
 
 >මෙය කියවන ඔබ දිහා ටිකක් බලන්න. හරියට බලන්න. ඇවිත් බලන්න. ඒහිපස්සිකෝ...!!! එතන මම හිටියෙම නැති බව සැක හැර දැනගන්න. මොහොතක යෙදීමක් තුළ පැවතීමක් ලෙස හට ගැනීමේ හැකියාවක්ම නොතිබුණු බව දැනගන්න කෙනා දැකගන්න.
