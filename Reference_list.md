@@ -1565,7 +1565,9 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 
 >important
-- [ප්‍රඥාවට වඩා කුසලයක් නැත ](https://www.youtube.com/watch?v=aqQmHUdxxuw)  
+- [ප්‍රඥාවට වඩා කුසලයක් නැත ](https://www.youtube.com/watch?v=aqQmHUdxxuw) 
+- [ජාත සෝතාපන්නයා කවුද | පෙර භවය හා පසු භවය](https://www.youtube.com/watch?v=M2V36MLi4H4)
+- [පවතින්නේ බ්‍රෑන්ඩ් නිවු වර්තමානයක් පමණි](https://www.youtube.com/watch?v=ilpdO6YYchA) 
 ---
 
 >මෙය කියවන ඔබ දිහා ටිකක් බලන්න. හරියට බලන්න. ඇවිත් බලන්න. ඒහිපස්සිකෝ...!!! එතන මම හිටියෙම නැති බව සැක හැර දැනගන්න. මොහොතක යෙදීමක් තුළ පැවතීමක් ලෙස හට ගැනීමේ හැකියාවක්ම නොතිබුණු බව දැනගන්න කෙනා දැකගන්න.
