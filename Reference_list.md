@@ -1562,8 +1562,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [නිවන යන ධර්මතාවය නිවැරැදිව අවබෝධයට |Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=YAZ2CV-PDDI)
 - [ඉතා දුර් ලභ කරුණු සහිත දේශනයකි || Ven Mankadawal;a Sudassana Himi](https://www.youtube.com/watch?v=k-xJapjTLoE)
 - [අවබෝධයෙන් යථාර්තය දැක්මට || Ven Mankadawal;a Sudassana Himi](https://www.youtube.com/watch?v=sS3C9oBw6Po)
-- [අවිද්‍යඅදුරේ බුදුන් සොයන මිත්‍යාදෘෂ්ටික බෟද්ධයිනි |Buddothpado Aryanwahanse](https://www.youtube.com/watch?v=U76nOr1TOQw)
-- [අභිඥා ඥානයට හසු වන පරම සත්‍ය පැය දාහතරේ...](https://www.youtube.com/playlist?list=PLlPPPouSZxQ0PDzKUwWb8N4ZDzPb6J505)
+
 
 >important
 - [ප්‍රඥාවට වඩා කුසලයක් නැත ](https://www.youtube.com/watch?v=aqQmHUdxxuw)  
