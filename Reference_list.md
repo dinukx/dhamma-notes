@@ -1568,9 +1568,9 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [ප්‍රඥාවට වඩා කුසලයක් නැත ](https://www.youtube.com/watch?v=aqQmHUdxxuw) 
 - [ජාත සෝතාපන්නයා කවුද | පෙර භවය හා පසු භවය](https://www.youtube.com/watch?v=M2V36MLi4H4)
 - [පවතින්නේ බ්‍රෑන්ඩ් නිවු වර්තමානයක් පමණි](https://www.youtube.com/watch?v=ilpdO6YYchA) 
+- [මහනුවර පෝය දින දේශනාව 2023-01-06](https://www.youtube.com/watch?v=GG716hnFXz4)
 
-
-prithisandi wynanaya sawinyanaka weema ( nama roopa yedena than gaburata)
+`Next up : prithisandi wynanaya sawinyanaka weema ( nama roopa yedena than gaburata)`
 
 ---
 
