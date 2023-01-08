@@ -1559,15 +1559,19 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 `Main Collection - 103. නිවන සහ නිවන්මග අතර වෙනස හඳුනා ගැනීමට අවශ්‍ය ප්‍රඥාව`
 
-- [නිවන යන ධර්මතාවය නිවැරැදිව අවබෝධයට |Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=YAZ2CV-PDDI)
-- [ඉතා දුර් ලභ කරුණු සහිත දේශනයකි || Ven Mankadawal;a Sudassana Himi](https://www.youtube.com/watch?v=k-xJapjTLoE)
-- [අවබෝධයෙන් යථාර්තය දැක්මට || Ven Mankadawal;a Sudassana Himi](https://www.youtube.com/watch?v=sS3C9oBw6Po)
+- [නිවන යන ධර්මතාවය නිවැරැදිව අවබෝධයට | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=YAZ2CV-PDDI)
+- [ඉතා දුර්ලභ කරුණු සහිත දේශනයකි || Ven Mankadawala Sudassana Himi](https://www.youtube.com/watch?v=k-xJapjTLoE)
+- [අවබෝධයෙන් යථාර්තය දැක්මට || Ven Mankadawala Sudassana Himi](https://www.youtube.com/watch?v=sS3C9oBw6Po)
 
 
 >important
 - [ප්‍රඥාවට වඩා කුසලයක් නැත ](https://www.youtube.com/watch?v=aqQmHUdxxuw) 
 - [ජාත සෝතාපන්නයා කවුද | පෙර භවය හා පසු භවය](https://www.youtube.com/watch?v=M2V36MLi4H4)
 - [පවතින්නේ බ්‍රෑන්ඩ් නිවු වර්තමානයක් පමණි](https://www.youtube.com/watch?v=ilpdO6YYchA) 
+
+
+prithisandi wynanaya sawinyanaka weema ( nama roopa yedena than gaburata)
+
 ---
 
 >මෙය කියවන ඔබ දිහා ටිකක් බලන්න. හරියට බලන්න. ඇවිත් බලන්න. ඒහිපස්සිකෝ...!!! එතන මම හිටියෙම නැති බව සැක හැර දැනගන්න. මොහොතක යෙදීමක් තුළ පැවතීමක් ලෙස හට ගැනීමේ හැකියාවක්ම නොතිබුණු බව දැනගන්න කෙනා දැකගන්න.
