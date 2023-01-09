@@ -1570,7 +1570,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [පවතින්නේ බ්‍රෑන්ඩ් නිවු වර්තමානයක් පමණි](https://www.youtube.com/watch?v=ilpdO6YYchA) 
 - [මහනුවර පෝය දින දේශනාව 2023-01-06](https://www.youtube.com/watch?v=GG716hnFXz4)
 
-`Next up : prithisandi wynanaya sawinyanaka weema ( nama roopa yedena than gaburata)`
+`Next up : ප්‍රතිසන්ධි විඤ්ඤාණය  සවිඥානක වීම  ( nama roopa yedena than gaburata)`
 
 ---
 
