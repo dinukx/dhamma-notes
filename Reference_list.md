@@ -610,7 +610,9 @@ https://www.youtube.com/watch?v=-DgzmWZiW2Q)
 
 
 `Main Collection - 49. නිරෝධය දැකීම (2022-01-24 at 00:18 GMT-8)`  [link](https://youtu.be/kPxAc-29Xzc)
-&&
+
+No reference go to 50.
+
 `Main Collection - 50. මගේ නොවන දැක්ම (2022-01-22 at 13:52 GMT-8)`  [link](https://youtu.be/h3hVsl6_TGE)
 has same below references.
 
