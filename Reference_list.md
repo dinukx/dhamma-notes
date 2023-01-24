@@ -1559,7 +1559,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [479: චිත්ත චෛතසික ධර්මයන් නිවැරදිව වටහා නොගැනීමේ හේතුවෙන් එම ධර්ම වලට පුද්ගල සංඥා ආරෝපණය කරන ආකාරය](https://www.youtube.com/watch?v=wQMOUO4JdVI)
 
 
-`Main Collection - 103. නිවන සහ නිවන්මග අතර වෙනස හඳුනා ගැනීමට අවශ්‍ය ප්‍රඥාව`
+`Main Collection - 103. නිවන සහ නිවන්මග අතර වෙනස හඳුනා ගැනීමට අවශ්‍ය ප්‍රඥාව` [link](https://youtu.be/VJPAp75Zd4o)
 
 - [නිවන යන ධර්මතාවය නිවැරැදිව අවබෝධයට | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=YAZ2CV-PDDI)
 - [ඉතා දුර්ලභ කරුණු සහිත දේශනයකි || Ven Mankadawala Sudassana Himi](https://www.youtube.com/watch?v=k-xJapjTLoE)
@@ -1573,7 +1573,21 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [පෙර නොතිබීම හටගෙන නිරවශේෂව නිරුද්ධ වන සිත ](https://www.youtube.com/watch?v=RflG4eGQM2w)
 - [Edit නැති ජීවිත](https://www.youtube.com/watch?v=3Lu_3ZRo-eo)
 
-`Next up : ප්‍රතිසන්ධි විඤ්ඤාණය  සවිඥානක වීම  ( nama roopa yedena than gaburata)`
+`Main Collection - 104. ප්‍රතිසන්ධි විඤ්ඤාණය සවිඥානක වීම. ( නාමරූප යෙදෙන තැන් ගැඹුරට )` [link](https://youtu.be/UgoNeKBRNQQ)
+
+>important  3 sessions below, listen several times then relisten to  `main collection - 104`. for better clarity.
+
+- [පටිච්චසමුප්පාද ධර්මය පිළිබද මනා අවබෝධයට | Ven Kotmale Kumara Kassapa Thero ](https://www.youtube.com/watch?v=t8DjkAwN1Go)
+- [SADAHAM SAWANA || තන්හා උපාදාන නිරෝධයෙන් || Ven Mankadawala Sudassana Himi](https://www.youtube.com/watch?v=OXtLzvw48lM)
+- [ආශ්‍රව ධර්මතා ප්‍රහාණය කරන සත්‍යය ඥානය | Ven Kotmale Kumara Kassapa Thero කොත්මලේ කුමාර කස්සප හිමි](https://www.youtube.com/watch?v=o2ERQb5A624)
+  
+> other references
+
+- [ධර්මයේ ගුණ 02 - ප්‍රඥාවන්තයාට පමණක් සැබෑ ආකාරයෙන් අර්ථාන්විත වන ධර්මයේ ගුණයන් හය](https://www.youtube.com/watch?v=kukJ24vIPTY)
+- [හේතුඵලවාදය නොවිමසා දෘෂ්ඨි වලටම ඇදෙන පෘතග්ජනයා - තිත්ථායතන සූත්‍රය](https://www.youtube.com/watch?v=h7v0ygfBmvY)
+
+
+`Next up: ආයතන පිරිසිඳ දකින්නේ කොහොමද ?`
 
 ---
 
