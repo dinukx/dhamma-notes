@@ -1,8 +1,10 @@
  
-### සියලු සංස්කාරයෝ නැසෙන සුලුය. නොපමාව කුසල් වඩන්න.
+### <u>සියලු සංස්කාරයෝ නැසෙන සුලුය. නොපමාව කුසල් වඩන්න.
  
+  ####  ඔබ ඉන්න `තැන (අවබෝධ මට්ටම) ` සොයාගෙන, එතැන සිට එන්න...!!! කුසල් වඩන්න...!!!
+
 ( Focus on `kusal`, in other words `kusalathaawaya` (in english we call it `talent`)
-Identifying `what is this talent` is very important. (This is `not` what you think) in very simple terms it is the talent to identify the issue in your own viewpoint. )
+Identifying `what is this talent ? ` is very important. (This is `not` what you think) in very simple terms, it is the talent to identify the issue in your own viewpoint. )
 
 
 ### <u>කුමක්ද මේ එකතුව</u>
@@ -1613,6 +1615,9 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 >important
 - [සක්කාය දිට්ඨිය කැඩෙන්නේ කෙසේද?](https://www.youtube.com/watch?v=uvWeDws8nk0)
+
+
+Next up : `ධර්මය පුද්ගල සංඥාවෙන් ගැනීමේ වැරැද්ද?`
 
 ---
 
