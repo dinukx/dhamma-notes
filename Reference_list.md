@@ -1604,6 +1604,8 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [Ven.Dikkumbure Subhuuthi Thero ලෝකය නිර්මාණය කරන ආයතන](https://www.youtube.com/watch?v=mQsBmQuYSHU)
 
 >other references
+- [සිතට ගොදුරු වීම!](https://www.youtube.com/watch?v=7n1unEpBQPE)
+- [දැකීම, ඇසීම, දැනීම, දැනගැනීම කුමක්ද? Ven Pitigala Gunarathana Thero ](https://www.youtube.com/watch?v=6z1khhi2Mso)
 - [දර්ශනය තේරුම් ගෙන නිවී යාමට වටිනා දේශනාවකි Mankadawala Sudassana Thero ](https://www.youtube.com/watch?v=wVEnc-3bLm0)
 - [බාහිර ලෝකයක් කියා දෙයක් තිබේද? | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=aPTTDEFf5vw)
 - [මේ මොහොතේ සමුදය සහ අන්තන්ගමය](https://www.youtube.com/watch?v=R2e_3N8JCt8)
