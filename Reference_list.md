@@ -1590,6 +1590,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 `Main Collection - 105. ආයතන පිරිසිඳ දකින්නේ කොහොමද ?` [link](https://youtu.be/qCRPpxCA1xs)
 
 >important
+- [අජ්ජත්ත බහිද්ධ මුලාවේ සමුදය](https://www.youtube.com/watch?v=_YuMm53NWng)
 - [තමා තුලම සමුදය දකිමින් වඩන කායානුපස්සනාව](https://www.youtube.com/watch?v=C1o0sY3JuoA)
 - [දුක්ඛ සමුදය නිරොධ ඥාණ තුලින් සම්මා දිට්ඨිය](https://www.youtube.com/watch?v=ga9cZ7Lh5g8)
 - [පටිච්චසමුප්පන්න බව](https://www.youtube.com/watch?v=RfyIfQindbE)
