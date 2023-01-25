@@ -1591,6 +1591,7 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 >important
 - [තමා තුලම සමුදය දකිමින් වඩන කායානුපස්සනාව](https://www.youtube.com/watch?v=C1o0sY3JuoA)
+- [දුක්ඛ සමුදය නිරොධ ඥාණ තුලින් සම්මා දිට්ඨිය](https://www.youtube.com/watch?v=ga9cZ7Lh5g8)
 - [පටිච්චසමුප්පන්න බව](https://www.youtube.com/watch?v=RfyIfQindbE)
 - [අවිද්‍යා ප්‍රත්‍ය හමුවන තුරු සෙවියයුතු සමුදය](https://www.youtube.com/watch?v=QaJHFiqIBhM)
 - [ආයතන මුලාව](https://www.youtube.com/watch?v=DP5NlFeV01w)
