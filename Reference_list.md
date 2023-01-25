@@ -1610,6 +1610,8 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [බාහිර ලෝකයක් කියා දෙයක් තිබේද? | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=aPTTDEFf5vw)
 - [මේ මොහොතේ සමුදය සහ අන්තන්ගමය](https://www.youtube.com/watch?v=R2e_3N8JCt8)
 
+>important
+- [සක්කාය දිට්ඨිය කැඩෙන්නේ කෙසේද?](https://www.youtube.com/watch?v=uvWeDws8nk0)
 
 ---
 
