@@ -1587,7 +1587,26 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [හේතුඵලවාදය නොවිමසා දෘෂ්ඨි වලටම ඇදෙන පෘතග්ජනයා - තිත්ථායතන සූත්‍රය](https://www.youtube.com/watch?v=h7v0ygfBmvY)
 
 
-`Next up: ආයතන පිරිසිඳ දකින්නේ කොහොමද ?`
+`Main Collection - 105. ආයතන පිරිසිඳ දකින්නේ කොහොමද ?` [link](https://youtu.be/qCRPpxCA1xs)
+
+>important
+- [තමා තුලම සමුදය දකිමින් වඩන කායානුපස්සනාව](https://www.youtube.com/watch?v=C1o0sY3JuoA)
+- [පටිච්චසමුප්පන්න බව](https://www.youtube.com/watch?v=RfyIfQindbE)
+- [අවිද්‍යා ප්‍රත්‍ය හමුවන තුරු සෙවියයුතු සමුදය](https://www.youtube.com/watch?v=QaJHFiqIBhM)
+- [ආයතන මුලාව](https://www.youtube.com/watch?v=DP5NlFeV01w)
+- [ආයතනයට ගෝචර නොවූ දුක්ඛ සත්‍ය](https://www.youtube.com/watch?v=1b8XwrhFALE)
+- [සළායතන මුලාව -කුරුණෑගල](https://www.youtube.com/watch?v=QxMyg4lfoqk)
+- [ආයතන පිරිසිඳ දකිමු -සුභද්‍රාරාමය](https://www.youtube.com/watch?v=iqhxq7T1RgA)
+- [සංඛත පටිච්ච සමුප්පන්න ආයතන](https://www.youtube.com/watch?v=14C69opQM6g)
+- [ලෝකයේ ආයතන මුලාව](https://www.youtube.com/watch?v=OGpB_UCoZCo)
+- [ආයතන වල ගෝචර නානත්වය](https://www.youtube.com/watch?v=nNSZGl0qNPo)
+- [Ven.Dikkumbure Subhuuthi Thero ලෝකය නිර්මාණය කරන ආයතන](https://www.youtube.com/watch?v=mQsBmQuYSHU)
+
+>other references
+- [දර්ශනය තේරුම් ගෙන නිවී යාමට වටිනා දේශනාවකි Mankadawala Sudassana Thero ](https://www.youtube.com/watch?v=wVEnc-3bLm0)
+- [බාහිර ලෝකයක් කියා දෙයක් තිබේද? | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=aPTTDEFf5vw)
+- [මේ මොහොතේ සමුදය සහ අන්තන්ගමය](https://www.youtube.com/watch?v=R2e_3N8JCt8)
+
 
 ---
 
