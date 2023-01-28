@@ -1613,13 +1613,16 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 - [බාහිර ලෝකයක් කියා දෙයක් තිබේද? | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=aPTTDEFf5vw)
 - [මේ මොහොතේ සමුදය සහ අන්තන්ගමය](https://www.youtube.com/watch?v=R2e_3N8JCt8)
 
+
+
+`
+Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතනයේ සමුදය සෙවීම` [link](https://youtu.be/Pv9I9PDBBjE)
 >important
 - [සක්කාය දිට්ඨිය කැඩෙන්නේ කෙසේද?](https://www.youtube.com/watch?v=uvWeDws8nk0)
-
-
-Next up : `ධර්මය පුද්ගල සංඥාවෙන් ගැනීමේ වැරැද්ද?`
-
 - [හිතින් අල්ලා නොගෙනසිටීමට Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=6bdKl7eIEes&t=3s)
+- [පංච උපාදානස්කන්ධයේ සමුදය දැකීම සතිපට්ඨානයයි](https://www.youtube.com/watch?v=ZfS6QjlOSZg)
+- [සාකච්චා 05_Ven Watagoda Maggavihari](https://www.youtube.com/watch?v=G0eZjgRGs9M)
+
 
 ---
 
