@@ -1617,9 +1617,8 @@ https://www.youtube.com/watch?v=6a9ILORBoAw)
 
 `
 Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතනයේ සමුදය සෙවීම` [link](https://youtu.be/Pv9I9PDBBjE)
->important
+>very important
 - [නිවනටම මඟ දකිමු භවයෙන් භවයට යන විඥ්ඥානයක් තිබේද? |Ven Kotmale Kumara Kassapa Thero ](https://www.youtube.com/watch?v=TT8GeYYa128)
-- [සක්කාය දිට්ඨිය කැඩෙන්නේ කෙසේද?](https://www.youtube.com/watch?v=uvWeDws8nk0)
 - [හිතින් අල්ලා නොගෙනසිටීමට Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=6bdKl7eIEes&t=3s)
 - [පංච උපාදානස්කන්ධයේ සමුදය දැකීම සතිපට්ඨානයයි](https://www.youtube.com/watch?v=ZfS6QjlOSZg)
 - [සාකච්චා 05_Ven Watagoda Maggavihari](https://www.youtube.com/watch?v=G0eZjgRGs9M)
