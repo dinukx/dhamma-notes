@@ -1626,7 +1626,8 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 >මෙතනත් බලන්න. එළඹගත් සිහියෙන් අසන්න. This is prerequisties for next session.
 
 -  [මනසේ මායාව | Ven Aluthgamgoda Gnanaweera Thero](https://www.youtube.com/watch?v=U85K7w8HTSs)
-
+- [මායූපමංච විඤ්ඤාණං](https://www.youtube.com/watch?v=GER_rHVBBlA) 
+  
 `Main Collection - 107. පංචස්කන්ධය සහ පංච උපාදානස්කන්ධය අතර වෙනස ගැඹුරින් (යථාභූත ඥානය)` [Link](https://youtu.be/YZBCSdmhJl8)
 > ^^ above session is very important.
 - [Maha Butha Rupa- Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=xSw6rz3qtxw)
@@ -1643,11 +1644,16 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 
 - [501: 'චේතෝ විමුක්තිය' සහ 'පඤ්ඤා විමුක්තිය' යනු කුමක්දැයි පැහැදිලිව දැන ගනිමු.](https://www.youtube.com/watch?v=GpjjC3Ku1ME)  
 - [meda mawatha, කෙලෙස් නිරෝධය](https://www.youtube.com/watch?v=wh2O9eoT6co&t=1209s)
->important
+
+  
+  > below session is deep. try listening in potions.
+- [මහානිදාන සූත්‍රය | Mahanidana Suthraya (2023.01.29)](https://www.youtube.com/watch?v=adXoDGeSpH4)
+>important  
+- [හේතු ඵල ධර්මය ප්‍රගුණයෙන් ආයතන සය නිරෝධය කිරීම|| Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=6m_C0Q2_WtE)
 - [සකෘදාගාමි ඵලය.](https://www.youtube.com/watch?v=GZI11YGrtwU)
 - [සිතට රැවටෙන්න එපා ( අනාගාමී ඵල ස්වභාවය ) ](https://www.youtube.com/watch?v=YJIqd_tplE8)
 
-- [මායූපමංච විඤ්ඤාණං](https://www.youtube.com/watch?v=GER_rHVBBlA)  
+ 
 - [මහා නිවනට එක දේශනාවක් ඒකාන්තයි ](https://www.youtube.com/watch?v=6cUSDnyhXgU)
 ---
 
