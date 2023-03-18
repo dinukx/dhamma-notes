@@ -1681,7 +1681,9 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 - [උපාදානයෙන් සැඟවුණු නිර්වාණ ධාතුව අවබෝධයට | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=tjaGPgBsNmU)
 - [පංච උපාධානස්කන්ධය මැනවින් අවබෝධයට | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=gG2xF75DotQ)
 - [ධාතු විභංග සූත්‍රය |පූජ්‍ය කොත්මලේ කුමාර කස්සප හිමි](https://www.youtube.com/watch?v=OnVIQHFH60U)
-  
+- [ආයතන කුසලතාවය හා සළායතන නිරෝධය | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=d36Zs8Wd_-U)
+- [රූපය ආත්මයක් ලෙස ගත යුතුද? | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=4UTecTEyIFA)
+    
 Next up : upadanaya thula ismathu wana aathma sobawaye waradda
 
 ---
