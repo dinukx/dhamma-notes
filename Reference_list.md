@@ -1661,13 +1661,28 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 - [පට්ඨාන දේශනා 01](https://www.youtube.com/watch?v=2-bVjEfbtGU)
 - [පට්ඨාන ධර්මවිශ්ලේෂණය Explain Of Patthana | පූජ්‍ය තල්ගමුවේ සුධීරානන්ද ස්වාමීන්වහන්සේ](https://www.youtube.com/watch?v=JZIqipz6-rM)
 - [සුවිසි ප්‍රත්‍ය විශ්ලේෂණය #Pattana](https://www.youtube.com/watch?v=-gAZtgHx0TM)
-- [Most Ven. Kothmale Kumara Kassapa Thero - January 21, 2023](https://www.youtube.com/watch?v=2Q4qBHv6xWo)
+
 - [අවිද්‍යා පච්චයා සංකාර](https://www.youtube.com/watch?v=q8vlE3RiTRc)
 - [දර්ශනය- යෝගාවචර භික්ෂූන් වහන්සේලා සමග පැවැත්වූ ධර්ම සාකච්ඡා](https://www.youtube.com/watch?v=ZYD32S3firc)
 - [ආනාපානසති භාවනාව (1 කොටස)](https://www.youtube.com/watch?v=yzkKgvFqe_M)
 - [පඤ්හාවාරයෙන් ආරම්භ කරන ලද ලංකාවේ පළමු වැනි පට්ඨාන දේශනා මාලාව](https://www.youtube.com/watch?v=7zV98pWodXY)
 
-Next up : Bawa-nirodaya gaburata
+`Main Collection - 110. අවබෝධයෙන් ලෝක ධර්මතාවය ඉක්මවන විදිය ( පරියායකින් තව පරියායකට )` - [link](https://youtu.be/q60lSFg7Yqg)
+
+- [Most Ven. Kothmale Kumara Kassapa Thero - January 21, 2023](https://www.youtube.com/watch?v=2Q4qBHv6xWo)
+- [ශුන්‍යතාවය පිළිබඳ දකින්නා මාරයා පරදවයි | Ven Kotmale Kumara Kassapa Thero ](https://www.youtube.com/watch?v=fFuWAOIC2YQ)
+- [අනාත්ම සංඥාව | Anatta | Ven. Kothmale Kumarakassapa Thero](https://www.youtube.com/watch?v=VmiZjh8UaIE)
+- [අනිත්‍ය සංඥාව මූලික දේශනාව | Ven kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=EZ_EsaEwhfk)
+- [විපස්සනාව සදහා අවශ්‍යම කාරණා උදයවැය ඥානය Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=c_jnudYqr0M)
+- [හේතූන් අනිත්‍ය වේනම් ඵලයද අනිත්‍යවේ | Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=iwfdjSfjk2g)
+- [නිරුද්ධ වෙනහැටි හරියටම දැනගෙන මිදීමට Ven Kotmale Kumara Kassapa Thero ](https://www.youtube.com/watch?v=EtSB1zBKXfQ)
+- [චතුරාර්‍ය සත්‍යය දර්ශනය පැහැදිලිවම | Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=q2dDYx1iNBM)
+- [නිවන අරමුණු වූ රූප කාණ්ඩ පිළිබද ඉතා වටිනා දේශනාවකි | Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=Ur30RhgHYsI)
+- [උපාදානයෙන් සැඟවුණු නිර්වාණ ධාතුව අවබෝධයට | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=tjaGPgBsNmU)
+- [පංච උපාධානස්කන්ධය මැනවින් අවබෝධයට | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=gG2xF75DotQ)
+- [ධාතු විභංග සූත්‍රය |පූජ්‍ය කොත්මලේ කුමාර කස්සප හිමි](https://www.youtube.com/watch?v=OnVIQHFH60U)
+  
+Next up : upadanaya thula ismathu wana aathma sobawaye waradda
 
 ---
 
