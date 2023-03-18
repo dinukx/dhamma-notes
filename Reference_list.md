@@ -1684,7 +1684,7 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 - [ආයතන කුසලතාවය හා සළායතන නිරෝධය | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=d36Zs8Wd_-U)
 - [රූපය ආත්මයක් ලෙස ගත යුතුද? | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=4UTecTEyIFA)
     
-Next up : upadanaya thula ismathu wana aathma sobawaye waradda
+Next up : විඤ්ඤාණය තිති වන ස්වභාවය ගැඹුරට ( චේතනා බවෝ )
 
 ---
 
