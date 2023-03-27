@@ -1,4 +1,6 @@
- 
+if you are from an English (speaking) background [>> Start here. <<](https://github.com/dinukx/dhamma-notes/blob/main/english_reference.md)
+
+
 ### <u>සියලු සංස්කාරයෝ නැසෙන සුලුය. නොපමාව කුසල් වඩන්න.
  
   ####  ඔබ ඉන්න `තැන (අවබෝධ මට්ටම) ` සොයාගෙන, එතැන සිට එන්න...!!! කුසල් වඩන්න...!!!
@@ -7,7 +9,7 @@
 Identifying `what is this talent ? ` is very important. (This is `not` what you think) in very simple terms, it is the talent to identify the issue in your own viewpoint. )
 
 
-if you are from an English (speaking) background [ Start here.](https://github.com/dinukx/dhamma-notes/blob/main/english_reference.md)
+
 ### <u>කුමක්ද මේ එකතුව</u>
 
  අද භාෂාවෙන් කිව්වොත් සරලවම, බුදුරජාණන් වහන්සේගේ ශ්‍රී සද්ධර්මය අද කාලයේ සොයාගෙන යන්නේ කොහොමද? කියන එකයි.  
