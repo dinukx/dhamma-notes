@@ -1680,14 +1680,46 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 - [හේතූන් අනිත්‍ය වේනම් ඵලයද අනිත්‍යවේ | Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=iwfdjSfjk2g)
 - [නිරුද්ධ වෙනහැටි හරියටම දැනගෙන මිදීමට Ven Kotmale Kumara Kassapa Thero ](https://www.youtube.com/watch?v=EtSB1zBKXfQ)
 - [චතුරාර්‍ය සත්‍යය දර්ශනය පැහැදිලිවම | Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=q2dDYx1iNBM)
-- [නිවන අරමුණු වූ රූප කාණ්ඩ පිළිබද ඉතා වටිනා දේශනාවකි | Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=Ur30RhgHYsI)
-- [උපාදානයෙන් සැඟවුණු නිර්වාණ ධාතුව අවබෝධයට | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=tjaGPgBsNmU)
-- [පංච උපාධානස්කන්ධය මැනවින් අවබෝධයට | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=gG2xF75DotQ)
-- [ධාතු විභංග සූත්‍රය |පූජ්‍ය කොත්මලේ කුමාර කස්සප හිමි](https://www.youtube.com/watch?v=OnVIQHFH60U)
+
 - [ආයතන කුසලතාවය හා සළායතන නිරෝධය | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=d36Zs8Wd_-U)
 - [රූපය ආත්මයක් ලෙස ගත යුතුද? | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=4UTecTEyIFA)
     
-Next up : විඤ්ඤාණය තිති වන ස්වභාවය ගැඹුරට ( චේතනා බවෝ )
+
+`Main Collection - 111. විඤ්ඤාණය තිති වන ස්වභාවය ගැඹුරට ( චේතනා බවෝ  )` [Link](https://youtu.be/TzYp5tWglSw)
+
+- [514 (පළමුවන කොටස) "වත්‍ථුසඞ්කමනාචෙව - සඤ්ඤාය ච විවට්ටනා _ ආවජ්ජන බලඤ්චෙව - පටිසඞ්ඛා විපස්සනා"](https://www.youtube.com/watch?v=HG-GIidqbRQ)
+- [Ven. Kothmale Kumara Kassapa thero | 2019-07-29| The Imperial Hotel, Stroud England](https://www.youtube.com/watch?v=9i9PTnmLjb8)
+- [චතුරාර්ය සත්‍යය සහ පටිච්ච සමුප්පාද | Ven. Kothmale Kumara Kassapa thero | 2019-07-28 | Bristol UK](https://www.youtube.com/watch?v=93ZqLPsVuAc)
+- [විඥානයාගේ ගෘහය ( හාලිද්‌දිකානි සූත්‍රය ) Ven Kothmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=b5vqs9iY2ak)
+- [විඤ්ඤාණය පිහිටා සිටින ස්ථානය-අතිපූජ්‍ය කොත්මලේ කුමාරකස්සප ස්වාමින්වහන්සේ](https://www.youtube.com/watch?v=Dss3UEIuOIk)
+- [ලෝකෝත්තර සම්මා දිට්ඨිය - Ven Kothmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=vsK_KjuW2Wk)
+  
+>important sessions below  
+- [Most Ven. Kothmale Kumara Kassapa Thero - January 21, 2023](https://www.youtube.com/watch?v=2Q4qBHv6xWo)
+- [සත්ත්ව පුද්ගල භාවය දුරු කිරීම නිවනයි | Ven. Kotmale Kumara Kassapa Thero | ඛෙමා සූත්‍රය](https://www.youtube.com/watch?v=jRuSPsERBKs)
+- [ඇහේ හා රූපයේ යථාර්ථය අවබෝධයට | Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=oackULLJKE4&t=1216s)
+- [Most Ven. Kothmale Kumara Kassapa Thero - January 21, 2023](https://www.youtube.com/watch?v=j4bw9-G9nlY)
+- [ඕස්ට්‍රේලියාවෙ සිට සත්‍යය ධර්මය සවන් දෙන මොහොතේ ආර්ය භූමියට පැමිණීම](https://www.youtube.com/watch?v=sVO2D3BUyjE)
+  
+
+
+`Main Collection - 112. පරියායකින් පරියායකට ගැලපීම සහ නොගැලපීම.(ධාතු නානත්වය ගැඹුරට )` [Link](https://youtu.be/zAZAB4q5L5M)
+
+- [නිවන අරමුණු වූ රූප කාණ්ඩ පිළිබද ඉතා වටිනා දේශනාවකි | Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=Ur30RhgHYsI)
+- [උපාදානයෙන් සැඟවුණු නිර්වාණ ධාතුව අවබෝධයට | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=tjaGPgBsNmU)
+- [පංච උපාධානස්කන්ධය මැනවින් අවබෝධයට | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=gG2xF75DotQ)
+  
+>important
+- [ධාතු විභංග සූත්‍රය |පූජ්‍ය කොත්මලේ කුමාර කස්සප හිමි](https://www.youtube.com/watch?v=OnVIQHFH60U)
+- [ධාතු නානත්වය - ධාතුනානත්ත සූත්‍රය | Dhathunanatta Suthraya (2022.04.24)](https://www.youtube.com/watch?v=i7b8z3Q29DU)
+- [meda mawatha, කෙලෙස් නිරෝධය.](https://www.youtube.com/watch?v=wh2O9eoT6co&t=1251s)
+- [නිරුද්ධ වන්නේ මේ ආකාරයටයි | Ven Kotmale Kumara Kassapa Thero | පූජ්‍ය කොත්මලේ කුමාර කස්සපහිමි](https://www.youtube.com/watch?v=fvySQhAXoNc)
+- [නිවෙන්නට අවැසිම දර්ශනය | Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=p3RwQc8BUc8)
+- [නිර්වාණයට සෘජු මඟක් | Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=aHXCAjKbPoI)
+- [යථාර්තය දැකීමෙන් දුක දුරු කිරීම](https://www.youtube.com/watch?v=Z0Upxm3yV7I)
+
+
+Next up : 
 
 ---
 
