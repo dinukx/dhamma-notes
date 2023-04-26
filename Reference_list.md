@@ -1736,7 +1736,12 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 - [ඒකායන මඟ මෙයයි| Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=hYOI0kiOW4Y)
 - [අවිද්‍යාවේ සැබෑ ස්වරූපය දැන නිවන දැකීමට Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=mxRPyK0qp6U)
 - [සතිපට්ඨාන හා සතිපට්ඨාන භාවනාව | Ven Mankadawala Sudassana Thero ](https://www.youtube.com/watch?v=CTO4UXwhqFs)
+- [විදර්ශනා කරන හැටි - Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=rcTaDgrYZUE)
 
+- [Mindfulness Meditation Center ධාතු මනසිකාරය තුළින් නිවන කරා ගෙන මග](https://www.youtube.com/watch?v=6ilnL3V-HIc)
+
+- [නාම රූප නිරොධය (අජිත සූත්‍රය) - අතිපූජ්‍ය කොත්මලේ කුමාරකස්සප ස්වාමින්වහන්සේ](https://www.youtube.com/watch?v=8g_9Axdxn_k)
+  
 Next up : ඵස්සය සහ සම්පස්සය 
 
 ---
