@@ -10,3 +10,4 @@ Pre-Req:
 - [Who are we? A conversation between Buddhism and neuroscience](https://www.youtube.com/watch?v=slPnLS8gefw)
 - [Gelong Thubten mindfulness and health part 1](https://www.youtube.com/watch?v=96DZYPRe1eY)
 - [Gelong Thubten mindfulness and health part 2](https://youtu.be/m5JHGcX6kmg)
+- [Enlightenment Is Not an Exotic Experience](https://www.youtube.com/watch?v=YHP4suoWEB0)

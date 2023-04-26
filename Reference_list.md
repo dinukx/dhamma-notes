@@ -1729,6 +1729,14 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 - [මෙය ඇති කල්හි මෙය වේ | part 2](https://www.youtube.com/watch?v=i0UfKxxtt24)
 - [මෙය ඇති කල්හි මෙය වේ!](https://www.youtube.com/watch?v=u8oDENN38V8)
 
+`Main Collection - 114.  අත්තභාව පරියාපන්න ස්වභාවය ගැඹුරට` [Link](https://youtu.be/tSmzMW39NeA)
+
+> important
+- [සතිපට්ඨානයෙන් වාසය කළොත් නිවන් යා හැකිද? ගැඹුරු දේශනා | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=-VgrycmtG_0)
+- [ඒකායන මඟ මෙයයි| Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=hYOI0kiOW4Y)
+- [අවිද්‍යාවේ සැබෑ ස්වරූපය දැන නිවන දැකීමට Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=mxRPyK0qp6U)
+- [සතිපට්ඨාන හා සතිපට්ඨාන භාවනාව | Ven Mankadawala Sudassana Thero ](https://www.youtube.com/watch?v=CTO4UXwhqFs)
+
 Next up : ඵස්සය සහ සම්පස්සය 
 
 ---
