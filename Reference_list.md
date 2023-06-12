@@ -1794,14 +1794,12 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 - [ආර්ය වූ සම්මා සමාධිය මහා චත්තාරීසක සූත්‍රය Ven Kotmale Kumara Kassapa Thero ](https://www.youtube.com/watch?v=NIKePU2cmdY)
     
 
-
-
-`Main Collection - 118.විපාක සිත් සහ ක්‍රියා සිත් අතර වෙනස ගැඹුරට` [Link]()
+`Main Collection - 118.විපාක සිත් සහ ක්‍රියා සිත් අතර වෙනස ගැඹුරට` [Link](https://youtu.be/3LMchoXdAeQ)
 - [සතිනිමිත්ත පිළිබඳ අවබෝධයට | Ven Kotmale Kumara Kassapa Thero](https://youtu.be/G4KHN45-K90)  
 - [තමා තුළින් තමාව දැකීමට | Ven Mankadawala Sudassana Thero](https://youtu.be/3zuz4hRFhVA)
 - [භව තණ්හාව ප්‍රහීන කිරීමට | Ven Kotmale Kumara Kassapa Thero](https://youtu.be/_ZgTBqifo6w)
 - [චතුරාර්‍ය සත්‍යය දර්ශනය පැහැදිලිවම | Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=q2dDYx1iNBM&t=8s)
-- [ජීවිතය ධර්මය තුලින් දැකීම | Ven Koswatte Ariyawimala thero | 2023-04-14](https://www.youtube.com/watch?v=xAyVY-0ECKw)
+
 
 
 ---
