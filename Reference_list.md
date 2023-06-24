@@ -1794,14 +1794,17 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 - [ආර්ය වූ සම්මා සමාධිය මහා චත්තාරීසක සූත්‍රය Ven Kotmale Kumara Kassapa Thero ](https://www.youtube.com/watch?v=NIKePU2cmdY)
     
 
-`Main Collection - 118.විපාක සිත් සහ ක්‍රියා සිත් අතර වෙනස ගැඹුරට` [Link](https://youtu.be/3LMchoXdAeQ)
+`Main Collection - 119.විපාක සිත් සහ ක්‍රියා සිත් අතර වෙනස ගැඹුරට` [Link](https://youtu.be/3LMchoXdAeQ)
 - [සතිනිමිත්ත පිළිබඳ අවබෝධයට | Ven Kotmale Kumara Kassapa Thero](https://youtu.be/G4KHN45-K90)  
 - [තමා තුළින් තමාව දැකීමට | Ven Mankadawala Sudassana Thero](https://youtu.be/3zuz4hRFhVA)
 - [භව තණ්හාව ප්‍රහීන කිරීමට | Ven Kotmale Kumara Kassapa Thero](https://youtu.be/_ZgTBqifo6w)
 - [චතුරාර්‍ය සත්‍යය දර්ශනය පැහැදිලිවම | Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=q2dDYx1iNBM&t=8s)
 
 
+`Main Collection - 120. අවිද්‍යාව මූලික වන්නේ කෙසේද ( ප්‍රායෝගිකව පටිච්චසමුප්පාදය ගැඹුරට )` [Link](https://www.youtube.com/watch?v=464kGvmYUVk)
 
+- [කණා මැණික අහුලයිද?ධර්මදේශනා මාලාවෙ පලමුදේශනය(01)බටපොළ](https://www.youtube.com/watch?v=CoMHInM-smk)
+- [භද්දේකරත්ත සූත්‍රය Buddothpado (මෙත්මල් අරණ )](https://www.youtube.com/watch?v=TZd6iP_QqVI)
 ---
 
 >මෙය කියවන ඔබ දිහා ටිකක් බලන්න. හරියට බලන්න. ඇවිත් බලන්න. ඒහිපස්සිකෝ...!!! එතන මම හිටියෙම නැති බව සැක හැර දැනගන්න. මොහොතක යෙදීමක් තුළ පැවතීමක් ලෙස හට ගැනීමේ හැකියාවක්ම නොතිබුණු බව දැනගන්න කෙනා දැකගන්න.
@@ -1813,4 +1816,4 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 
 
 
-[![Live/Total](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fdinukx%2Fdhamma-notes%2Fblob%2Fmain%2FReference_list.md&count_bg=%2379C83D&title_bg=%23555555&icon=&icon_color=%23E7E7E7&title=Live+%2F+Total&edge_flat=false)](https://hits.seeyoufarm.com)
+[![Live/Total](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fdinukx%2Fdhamma-notes%2Fblob%2Fmain%2FReference_list.md&count_bg=%2379C83D&title_bg=%23555555&icon=&icon_color=%23E7E7E7&title=Your-visits+%2F+Live-Now&edge_flat=false)](https://hits.seeyoufarm.com)
