@@ -1799,7 +1799,7 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 - [තමා තුළින් තමාව දැකීමට | Ven Mankadawala Sudassana Thero](https://youtu.be/3zuz4hRFhVA)
 - [භව තණ්හාව ප්‍රහීන කිරීමට | Ven Kotmale Kumara Kassapa Thero](https://youtu.be/_ZgTBqifo6w)
 - [චතුරාර්‍ය සත්‍යය දර්ශනය පැහැදිලිවම | Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=q2dDYx1iNBM&t=8s)
-
+- [රැස්වීමට දෙයක් ඉතුරු නැති බව | Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=ifbNgnG4YhI)
 
 `Main Collection - 120. අවිද්‍යාව මූලික වන්නේ කෙසේද ( ප්‍රායෝගිකව පටිච්චසමුප්පාදය ගැඹුරට )` [Link](https://www.youtube.com/watch?v=464kGvmYUVk)
 
@@ -1814,6 +1814,13 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 - [තථාගතයන් වහන්සේ පෙන්වූ හේතු ඵල දහම - 01](https://www.youtube.com/watch?v=CKrBVI5gLW4)
 - [තථාගතයන් වහන්සේ පෙන්වූ හේතු ඵල දහම - 02](https://www.youtube.com/watch?v=jv71gB5Spe8)
 - [අරමුණු වෙන්නෙ ලෝකය හෝ තමා පිළිබඳව](https://www.youtube.com/watch?v=E9LJlbvasBA)
+
+---
+> Start bawana under a teacher.
+> 
+> දැන් භාවනාව පටන් ගන්න. 
+> reference [>> Start here. <<](https://github.com/dinukx/dhamma-notes/blob/main/Bawana.md)
+---
 
 ---
 

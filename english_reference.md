@@ -11,3 +11,6 @@ Pre-Req:
 - [Gelong Thubten mindfulness and health part 1](https://www.youtube.com/watch?v=96DZYPRe1eY)
 - [Gelong Thubten mindfulness and health part 2](https://youtu.be/m5JHGcX6kmg)
 - [Enlightenment Is Not an Exotic Experience](https://www.youtube.com/watch?v=YHP4suoWEB0)
+
+### Back to main page
+[back](https://github.com/dinukx/dhamma-notes/blob/main/Reference_list.md)
