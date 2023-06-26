@@ -1816,7 +1816,7 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 - [අරමුණු වෙන්නෙ ලෝකය හෝ තමා පිළිබඳව](https://www.youtube.com/watch?v=E9LJlbvasBA)
 
 ---
-> Start bawana under a teacher.
+> Now Start Bawana under a teacher.
 > 
 > දැන් භාවනාව පටන් ගන්න. 
 > reference [>> Start here. <<](https://github.com/dinukx/dhamma-notes/blob/main/Bawana.md)
