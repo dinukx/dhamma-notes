@@ -1782,7 +1782,7 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 - [මේ ජීවිතයේදීම නිවන අත්විදීමට | Ven Kotmale Kumara Kassapa Thero](https://www.youtube.com/watch?v=TT-KDmubIO4)
 - [ජාතිය නම් මෙයයි | Ven Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=2Py_px_hU-I)
 - [තමා තුළින් තමාව දැකීමට | Ven Mankadawala Sudassana Thero ](https://www.youtube.com/watch?v=3zuz4hRFhVA)
-
+- [නිවනට පත්වීමේ දොරටු 21 පෙන්වා වදාළ උතුම් සතිපඨාන භාවනාවේ ආනිශංස.](https://www.youtube.com/watch?v=zeuL0Fj_F8U)
 
 `Main Collection - 118. විපාකය සහ කර්මය ගැඹුරට ( තවදුරටත් )`[Link](https://youtu.be/BFqjkUZDbMs)
 
@@ -1833,4 +1833,4 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 
 
 
-[![Live/Total](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fdinukx%2Fdhamma-notes%2Fblob%2Fmain%2FReference_list.md&count_bg=%2379C83D&title_bg=%23555555&icon=&icon_color=%23E7E7E7&title=Your-visits+%2F+Live-Now&edge_flat=false)](https://hits.seeyoufarm.com)
+[![Live/Total](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fdinukx%2Fdhamma-notes%2Fblob%2Fmain%2FReference_list.md&count_bg=%2379C83D&title_bg=%23555555&icon=&icon_color=%23E7E7E7&title=Your-visits+%2F+Live&edge_flat=false)](https://hits.seeyoufarm.com)
