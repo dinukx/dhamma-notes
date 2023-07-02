@@ -33,7 +33,8 @@ Bhante Jinalankara Thero](https://www.youtube.com/watch?v=-aFuSm3Yigg&t=22s)
 
 - [ආනාපානසති භාවනාවේ දී ආනාපාන කය හඳුනා ගැනීමෙන් පසු හිස් බව තේරුම් ගැනීම කෙසේද කළ යුත්තේ?](https://www.youtube.com/watch?v=ruVoqeJTtik)
 - [ආනාපානසති භාවනාව සාරාංශ කමටහන සහ ගැටළු සාකච්ඡාව](https://youtube.com/playlist?list=PLvB-B6hmoIXkVl_uSnHBBiut2sCfZxi7J)
-- 
+- [කමටහන Ep01 | Kotmale Kumarakassapa Thero | 2022 12 03 ](https://www.youtube.com/watch?v=simpkBLYFjE)
+- [සති නිමිත්ත ( අතිපූජ්‍ය කොත්මලේ කුමාරකස්සප ස්වාමින්වහන්සේ )](https://www.youtube.com/watch?v=zItwElHWNfA)
 ### Back to main page
 [back](https://github.com/dinukx/dhamma-notes/blob/main/Reference_list.md)
 
