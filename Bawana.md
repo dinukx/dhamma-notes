@@ -36,6 +36,10 @@ Bhante Jinalankara Thero](https://www.youtube.com/watch?v=-aFuSm3Yigg&t=22s)
 - [කමටහන Ep01 | Kotmale Kumarakassapa Thero | 2022 12 03 ](https://www.youtube.com/watch?v=simpkBLYFjE)
 - [සති නිමිත්ත ( අතිපූජ්‍ය කොත්මලේ කුමාරකස්සප ස්වාමින්වහන්සේ )](https://www.youtube.com/watch?v=zItwElHWNfA)
 - [සමත & විපස්සනා භාවනා ක්‍රම හැදින්වීම | Samatha & Vipassana Bhawana Hadinvima](https://www.youtube.com/watch?v=DI-rMUWBZO8)
+- [පුහුණුවෙන් දැක අවසන් කළ යුතු නිවන් මග. අති පූජ්‍ය කොස්වත්තේ අරියවිමල හිමිපාණෝ](https://www.youtube.com/watch?v=Z7HYzX1xJEY)
+- [කර්මක්ෂය වන ලෙස අරමුණු විදර්ශනා කරන අයුරු - Meemure Dhammawansha Thero](https://youtu.be/S8fdTJQS5e8)
+- [ආනාපානසති භාවනාවෙන් විදර්ශනාවට පිවිසෙන අයුරු](https://youtu.be/0pZc_5V0pSY)
+
 ### Back to main page
 [back](https://github.com/dinukx/dhamma-notes/blob/main/Reference_list.md)
 
