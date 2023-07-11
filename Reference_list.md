@@ -1813,7 +1813,7 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 - [අන්ත වල අනුත්පාද නිරෝධය දැක එතරවීමට - අනිත්‍ය - නිරෝධ ඥානය](https://www.youtube.com/watch?v=TiJ_JsQQx6w)
 - [තථාගතයන් වහන්සේ පෙන්වූ හේතු ඵල දහම - 01](https://www.youtube.com/watch?v=CKrBVI5gLW4)
 - [තථාගතයන් වහන්සේ පෙන්වූ හේතු ඵල දහම - 02](https://www.youtube.com/watch?v=jv71gB5Spe8)
-- [අරමුණු වෙන්නෙ ලෝකය හෝ තමා පිළිබඳව](https://www.youtube.com/watch?v=E9LJlbvasBA)
+- [Pragna TV | Ven Wanduramba Sangananda thero](https://www.youtube.com/watch?v=ym-CYiheiAU)
 
 ---
 > Now Start Bawana under a teacher.
@@ -1837,7 +1837,7 @@ Main Collection - 106. සත්‍ය ඤාණය  අනුව ආයතන�
 - [පෙර නොඇසූ විරූ ධර්මය | අනිච්ච | සම්මා දිට්ඨිය | චක්ඛුං උදපාදි](https://www.youtube.com/watch?v=Zsrpbiy8p00)
 - [ඇසළ පෝදා විශේෂ ධර්ම දේශනාව | Mankadawala Sudassana Thero](https://www.youtube.com/watch?v=avVA5NOyrGQ)
 - [අරමුණු වෙන්නෙ ලෝකය හෝ තමා පිළිබඳව | gunarathana thero](https://www.youtube.com/watch?v=E9LJlbvasBA)
-
+- [SADAHAM SAWANA || රූපය දැකීම 03 || Ven Mankadawala Sudassana Himi](https://www.youtube.com/watch?v=ZgeUyxUD7qM)
 
 ---
 
