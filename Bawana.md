@@ -25,7 +25,6 @@ Bhante Jinalankara Thero](https://www.youtube.com/watch?v=-aFuSm3Yigg&t=22s)
 > ගුරුවරුයා පෙන්වන විදිහට  භාවනාව  කරන්න. යෙදෙන්න. සුතමය වශයෙන් ධර්මය අහන්න. භාවනා කරන්න. මනසිකාරය කරන්න. යුගනන්ද වශයෙන් ප්‍රත්‍යක්ෂය සකස් වීමට ඉඩ දෙන්න.
 
 
-- [ සමථය හා විපපස්සනාව | 2023 06 10 | Kothmale Kumarakassapa Thero](https://www.youtube.com/watch?v=qVx7noyC9iI)
 - [නිපුනත්වයෙන් දැක අවසන් කල යුතු නිවන් මග ||Ven Koswatte Ariyawimala Himi](https://www.youtube.com/watch?v=VHZM8gi7v9o)
     - [ධර්ම දේශනාවේ සඳහන් කළ
 අතිපූජ්‍ය කටුකුරුන්දේ ඤාණනන්ද ස්වාමීන් වහන්සේගේ  විදසුන් උපදෙස්   දේශනාවේ වඩාත් පැහැදිලි හඬපටය](https://www.youtube.com/watch?v=3Ox6RBnqfW4)
@@ -38,6 +37,7 @@ Bhante Jinalankara Thero](https://www.youtube.com/watch?v=-aFuSm3Yigg&t=22s)
 - [සමත & විපස්සනා භාවනා ක්‍රම හැදින්වීම | Samatha & Vipassana Bhawana Hadinvima](https://www.youtube.com/watch?v=DI-rMUWBZO8)
 - [පුහුණුවෙන් දැක අවසන් කළ යුතු නිවන් මග. අති පූජ්‍ය කොස්වත්තේ අරියවිමල හිමිපාණෝ](https://www.youtube.com/watch?v=Z7HYzX1xJEY)
 - [කර්මක්ෂය වන ලෙස අරමුණු විදර්ශනා කරන අයුරු - Meemure Dhammawansha Thero](https://youtu.be/S8fdTJQS5e8)
+- [ආනාපානසතිය | Most Ven. Kothmale Kumarakassapa Thero | Anapanasathiya](https://www.youtube.com/watch?v=c34DBAkigWk)
 - [ආනාපානසති භාවනාවෙන් විදර්ශනාවට පිවිසෙන අයුරු](https://youtu.be/0pZc_5V0pSY)
 
 ### Back to main page
