@@ -39,7 +39,8 @@ Bhante Jinalankara Thero](https://www.youtube.com/watch?v=-aFuSm3Yigg&t=22s)
 - [කර්මක්ෂය වන ලෙස අරමුණු විදර්ශනා කරන අයුරු - Meemure Dhammawansha Thero](https://youtu.be/S8fdTJQS5e8)
 - [ආනාපානසතිය | Most Ven. Kothmale Kumarakassapa Thero | Anapanasathiya](https://www.youtube.com/watch?v=c34DBAkigWk)
 - [ආනාපානසති භාවනාවෙන් විදර්ශනාවට පිවිසෙන අයුරු](https://youtu.be/0pZc_5V0pSY)
-
+- [සමථ විදර්ශනා භාවනාව | ආරණ්‍යවාසී ස්වාමීන් වහන්සේ නමක් සමග පවත්වන දුර්ලභ ධර්ම සාකච්ඡාව](https://www.youtube.com/watch?v=wiuXX4MhCFw)
+- 
 ### Back to main page
 [back](https://github.com/dinukx/dhamma-notes/blob/main/Reference_list.md)
 
