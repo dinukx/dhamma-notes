@@ -40,7 +40,31 @@ Bhante Jinalankara Thero](https://www.youtube.com/watch?v=-aFuSm3Yigg&t=22s)
 - [ආනාපානසතිය | Most Ven. Kothmale Kumarakassapa Thero | Anapanasathiya](https://www.youtube.com/watch?v=c34DBAkigWk)
 - [ආනාපානසති භාවනාවෙන් විදර්ශනාවට පිවිසෙන අයුරු](https://youtu.be/0pZc_5V0pSY)
 - [සමථ විදර්ශනා භාවනාව | ආරණ්‍යවාසී ස්වාමීන් වහන්සේ නමක් සමග පවත්වන දුර්ලභ ධර්ම සාකච්ඡාව](https://www.youtube.com/watch?v=wiuXX4MhCFw)
-- 
+
+>“ඒකායනෝ අයං භික්‍ඛවේ මග්ගෝ, සත්ථානං විශුද්ධියා සෝක පරිද්ධවානං සමතික්කමාය දුක්ඛ දෝමනස්සානං අත්ථංගමාය ඤායස්ස අධිගමාය නිබ්බානස්ස සවිඡිකිරියාය යදිදං චත්තාරෝ සතිපට්ඨානා”
+
+>ලෞකික ස්වරූපය :
+>1) සත්ථානං විශුද්ධියා – සත්‍වයා පිරිසිදු භාවයට පත්වීම (පංච නීවරණ යටපත්වීම)
+>2) සෝක සමතික්කමාය – ශෝකය ඉක්මවීම
+>3) පරිද්ධවානං සමතික්කමාය – පරිදේවය ඉක්මවීම
+>4) දුක්ඛ අත්ථංගමාය – දුක මගේ නොවීම
+>5) දෝමනස්සානං අත්ථංගමාය – දෝමනස්සය මගේ නොවීම
+>
+>ලෝකෝත්තර ස්වරූපය :
+>
+>6) ඤායස්ස අධිගමාය – මාර්ගඵල ඤානය
+>7) නිබ්බානස්ස සවිඡිකිරියාය – නිවන ලැබීම ( රහත්වීම)
+
+- [සතිපට්ඨාන භාවනානිසංස - 01](https://www.youtube.com/watch?v=LBbxeyYRJ1E)
+- [සතිපට්ඨාන භාවනානිසංස - 02](https://www.youtube.com/watch?v=80R55ZEgbXs)
+- [සතිපට්ඨාන භාවනානිසංස - 03](https://www.youtube.com/watch?v=c8_BFV_ibew)
+
+> ගුරුවරුයා පෙන්වන විදිහට  භාවනාව  කරන්න. යෙදෙන්න. සුතමය වශයෙන් ධර්මය අහන්න. භාවනා කරන්න. මනසිකාරය කරන්න. යුගනන්ද වශයෙන් ප්‍රත්‍යක්ෂය සකස් වීමට ඉඩ දෙන්න.
+
+- [ධාතු ගුණ යනු මොනවා ද ?](https://www.youtube.com/watch?v=Trr9cPpOEL0)
+- [විපස්සනා භාවනාවේදී සිතුවිලි ඒම වරදක්ද? | අති පූජ්‍ය එල්ලාවල විජිතනන්ද හිමි](https://www.youtube.com/watch?v=3rWxL_vsUUY)
+- [සක්මන් භාවනාව කරන හැටි| අති පූජ්‍ය එල්ලාවල විජිතනන්ද හිමි](https://www.youtube.com/watch?v=SKpTRFMctmA&list=PLHYG40QVXB-Rkf7ApES5AIJO5oixglpYv)
+
 ### Back to main page
 [back](https://github.com/dinukx/dhamma-notes/blob/main/Reference_list.md)
 
