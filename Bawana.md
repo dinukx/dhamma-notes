@@ -64,7 +64,8 @@ Bhante Jinalankara Thero](https://www.youtube.com/watch?v=-aFuSm3Yigg&t=22s)
 - [ධාතු ගුණ යනු මොනවා ද ?](https://www.youtube.com/watch?v=Trr9cPpOEL0)
 - [විපස්සනා භාවනාවේදී සිතුවිලි ඒම වරදක්ද? | අති පූජ්‍ය එල්ලාවල විජිතනන්ද හිමි](https://www.youtube.com/watch?v=3rWxL_vsUUY)
 - [සක්මන් භාවනාව කරන හැටි| අති පූජ්‍ය එල්ලාවල විජිතනන්ද හිමි](https://www.youtube.com/watch?v=SKpTRFMctmA&list=PLHYG40QVXB-Rkf7ApES5AIJO5oixglpYv)
-
+- [ඔබ කරනා භාවනා තුළ නිර්වාණය තිබේද ? meditation / Nirvana through meditation](https://www.youtube.com/watch?v=584YsbR8KqQ)
+- [565: අපතුල තිබෙන මුලාවට හේතු පෙන්වා දෙමින් සත්ආකාරයකට සිදුකරන විදර්ශනා භාවනාව පිළිබඳ වටිනා දේශනාවක්](https://www.youtube.com/watch?v=SGR1NjY25aw)
 ### Back to main page
 [back](https://github.com/dinukx/dhamma-notes/blob/main/Reference_list.md)
 
