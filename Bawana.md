@@ -71,6 +71,7 @@ Bhante Jinalankara Thero](https://www.youtube.com/watch?v=-aFuSm3Yigg&t=22s)
 
 > very important segment ( listen several times)
 - [Ret01|Kajjaniya Sutta|Most Ven Dhammajiva Maha Thero](https://www.youtube.com/playlist?list=PLV95kmJxToUbFuDW-YyK54q75panc9PEF)
+- [Vipassana Bhawana Athwala|Most Ven Dhammajiva Maha Thero](https://www.youtube.com/playlist?list=PLV95kmJxToUYvlI0VuKIiOThrKuZuNNb7)
 ---
 ### Back to main page
 [back](https://github.com/dinukx/dhamma-notes/blob/main/Reference_list.md)
