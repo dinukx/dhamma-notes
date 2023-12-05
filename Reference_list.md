@@ -40,12 +40,12 @@ Identifying `what is this talent ? ` is very important. (This is `not` what you 
 > Then listen to `main collection` first. Once you reach 45 ( including all the references listed below ), then start listening to `Marga sakachcha` while continueing `main collection`. 
 
 > 
->  මුලින්ම `main collection` එක අහන්න , 45න් පසුව තමයි, මාර්ග සාකච්ඡා playlist එක අහන්න පටන් ගන්න සුදුසු. මාර්ග සාකච්ඡා එකතු වේ කොටස් මූලික මට්ටමේ දී ගැඹුරු වැඩි නිසා අවශ්‍ය මූලික දැනුම ලබා ගැනීම සඳහා මුලින්  `main collection` එකතුව අසා එහි තියෙන reference අසා එන්න අවශ්‍යයි. අහන sessions නොතේරෙන ස්වභාවයක් පවතී නම් තේරෙන තැනට ගොස් එතන සිට අහගෙන එන්න. 
+>  මුලින්ම `main collection` එක අහන්න , 45න් පසුව තමයි, මාර්ග සාකච්ඡා playlist එක අහන්න පටන් ගන්න සුදුසු. මාර්ග සාකච්ඡා එකතු වේ කොටස් මූලික මට්ටමේ දී ගැඹුරු වැඩි නිසා අවශ්‍ය මූලික දැනුම ලබා ගැනීම සඳහා මුලින්  `main collection` එකතුව අසා එහි තියෙන reference අසා එන්න අවශ්‍යයි. අහන sessions නොතේරෙන ස්වභාවයක් පවතී නම් තේරෙන තැනට ගොස් එතන සිට අහගෙන එන්න.   
 
 >All Discussions can be found at : 
 [Marga Sakachcha (මාර්ග සාකච්ඡා) Youtube Channel](https://www.youtube.com/channel/UCqBwHbufahAbn7xElX7sm5A/videos)
 - Start Here - > [main collection](https://www.youtube.com/playlist?list=PLXV8-pNZrgn9CUOUTZHSXQK7PUQJF9gD0)
-- Marga Sakachcha (මාර්ග සාකච්ඡා) - > [Marga Sakachcha](https://www.youtube.com/playlist?list=PLXV8-pNZrgn-nFHL8U7GKYMqmKzU05Xxy)
+- Marga Sakachcha (මාර්ග සාකච්ඡා) - > [Marga Sakachcha Discussions](https://www.youtube.com/playlist?list=PLXV8-pNZrgn-nFHL8U7GKYMqmKzU05Xxy)
 
 <b>first 10 videos</b>
 
