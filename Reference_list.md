@@ -477,14 +477,13 @@ https://youtu.be/PwR2ECoarPY)
 - [අනිත්‍යය බලන හැටි |පූජ්‍ය මාන්කඩවල සුදස්සන හිමි |Ven. Mankadawala Sudassana Thero](
 https://youtu.be/J6yjYKJ7EvM)
 
-- [ඇති කරගත් සම්මා දිට්ඨිය නැතිකර නොගැනීමට 
-Ven. Thalalle Chandakiththi thero (2020 - 01 - 21)](
-https://www.youtube.com/watch?v=uYtrzbmv3Do)
+- [නිවන් දකින තුරාවට සම්මාධිට්ටිය බලගැන්වෙන ආකාරය 
+Ven. Thalalle Chandakiththi thero ](
+https://www.youtube.com/watch?v=qz6_c4PHr6k)
 
-- [සෝවාන් වෙන්න අනිත්‍ය දර්ශනය භාවිතා කරන්නේ කෙසේද - 
-Ven Thalalle Chandakiththi Thero - Budu Bana](
-https://www.youtube.com/watch?v=j3xinNVxRPo)
-
+- [සෝවාන් වීම ~ Ven Talalle Chandakiththi Thero](
+https://www.youtube.com/watch?v=LSIYQttwY4E)
+- [අනිත්‍ය : Zero Point | ආරණ්‍යවාසි ස්වාමින් වහන්සේ නමක් සමග කරන දුර්ලභ ධර්ම සාකච්ඡාව](https://www.youtube.com/watch?v=MI7p0UadoiE)
 
 - [126: ප්‍රතිසන්ධි සිත සහ එම සිතට සම්බන්ධ බොහෝ කරුණු 
 ඇතුලත් මෙම දේශනාවෙන් අභිධර්ම දේශනා මාලාව අවසානයි.
@@ -518,8 +517,6 @@ https://www.youtube.com/watch?v=zfoHpoahU0c)
 - [පඤ‍්චුපාදානක‍්ඛන්‍ධා දුක‍්ඛා
 Ven. Alawwe Anomadassi Thero](
 https://www.youtube.com/watch?v=K7ZIGwf0MoQ)
-
-
 
 - [පෝ දින ධර්ම දේශනය (2021.11.18)
 Ven. Alawwe Anomadassi Thero](https://www.youtube.com/watch?v=gwlSTqYusvs)
