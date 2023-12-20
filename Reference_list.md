@@ -568,14 +568,9 @@ Ven. Alawwe Anomadassi Thero
 https://www.youtube.com/watch?v=tIHWc2m12jI)
 Ven. Alawwe Anomadassi Thero
 
-- [Wangeesa thero PTV patichcha Samuppada p1](
-https://www.youtube.com/watch?v=aOqzfh1Dnfs)
+- [මේ මොහොතේම ඉපිද මේ මේ මොහොතේම මියයාම නොහොත් පටිච්චසමුප්පාදය |බණ්ඩාරවෙල වන්ගීස හිමි](
+https://www.youtube.com/watch?v=5KVD0u8-7ho)
 
-- [Wangeesa thero patichcha Samuppada P2](
-https://www.youtube.com/watch?v=xhR5KI3Qy7w)
-
-- [Wangeesa thero PTV patichcha Samuppada P3](
-https://www.youtube.com/watch?v=NpOc6T3oclU)
 
 - [පූජ්‍යපාද පිටිගල ගුණරතන හිමි "මිථ්‍යාවෙන් මිදෙන මග" - Ven. Pitigala Gunarathana Thero](
 https://www.youtube.com/watch?v=d_-6shwH4IM)
